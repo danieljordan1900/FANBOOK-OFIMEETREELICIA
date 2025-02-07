@@ -8,11 +8,11 @@ Del otro lado del mostrador de Sugarcube Corner, su cliente (uno de los visitant
 
 "Dame unos segundos," contestó rápidamente Pinkie, añadiendo a la mezcla unos crayones triturados.
 
-"Lamento escuchar eso, Pinkie. Pero creo que la alcaldesa está haciendo lo correcto..." hablo Fluttershy, a lado de Discord, escuchando también a su amiga rosa.
+"Lamento escuchar eso, Pinkie. Pero creo que la alcaldesa está haciendo lo correcto..." hablo Fluttershy, a lado de Discord, escuchando también con calma a su amiga rosa.
 
 "¡Tú también, Fluttershy!" gritó de repente Pinkie entre lágrimas, estirando su cuello desde el mostrador hasta poner su cara casi en frente de la sorprendida pegaso.
 
-Por supuesto, Pinkie no lloraba por las palabras de su amiga, sino por las cebollas que estaba picando para añadirlas a su extraña mezcla.
+Por supuesto, las lagrimas de Pinkie no se debian a las palabras de su amiga, sino mas bien a las cebollas que estaba picando para añadirlas a su extraña mezcla.
 
 "Fluttershy está en lo correcto, querida Pinkie. Tal vez no lo hayas notado por estar tan ocupada haciendo sonrisas aquí y allá, pero las últimas estadísticas muestran que Ponyville se ha estado sobrepoblando de forma alarmante en estos últimos meses. Creo que hay demasiados 'otros' en este pie," señaló un académico Discord, cambiando su atuendo y haciendo aparecer con su magia una gran gráfica en forma de pastel.
 
@@ -20,11 +20,11 @@ La gráfica en cuestion se dividía en proporciones que mostraban la cantidad de
 
 Pero para Pinkie Pie, ese 'pie' no tenía buen sabor.
 
-"¡Huff! Quizá esa gráfica muestra algo, Discord. Pero cuando se trata de amigos, yo creo que más siempre es mejor. Además, todos los nuevos residentes que han llegado han sido súper amigables y ninguno de ellos ha causado problemas hasta el momento," respondió Pinkie, resuelta y orgullosa, mientras batía la mezcla informe de pastel con una espinosa maza de guerra.
+"¡Huff! Quizá esa gráfica muestra algo, Discord. Pero cuando se trata de amigos, yo creo que más siempre es mejor" respondió Pinkie, resuelta y orgullosa, mientras batía la mezcla informe de pastel con una espinosa maza de guerra. "Además, todos los nuevos residentes que han llegado han sido súper amigables y ninguno de ellos ha causado problemas hasta el momento,"
 
 "Hasta 'este' momento..." murmuró Discord, haciendo desaparecer de golpe su ropa académica y las gráficas.
 
-"Pinkie, lo que dices es cierto, todos han sido muy buenos con nosotros y se han adaptado muy bien, pero... creo que es cuestión de tiempo antes de que suceda algún 'incidente'. La alcaldesa solo está tomando las medidas oportunas como la autoridad que es," dijo Fluttershy en un tono suave pero serio. Mientras tanto, Pinkie vertía de cabeza la espumosa mezcla que habia preparadao en moldes de muffins hechos de periódico.
+"Pinkie, lo que dices es cierto, todos han sido muy buenos con nosotros y se han adaptado muy bien, pero... creo que es cuestión de tiempo antes de que suceda algún 'incidente'. La alcaldesa solo está tomando las medidas oportunas como la autoridad que es," dijo Fluttershy en un tono suave pero serio. Mientras tanto, Pinkie vertía de cabeza la espumosa mezcla gris que habia preparadao en moldes de muffins construidos de retasos periódicos pegados con goma de mascar.
 
 "¡Que aún es! Las elecciones son muy pronto Fluttershy. No seas tan ingenua," corrigió Pinkie, metiendo de golpe los indefendibles muffins en el horno. Sin embargo, no habían pasado ni 5 segundos cuando los sacó de vuelta.
 
@@ -32,11 +32,11 @@ Sirviéndolos con gracia sobre el mostrador, en una bandeja de plata, Pinkie col
 
 "¡Aquí están, solo para mi mejor amigo Discord! ¡LOS MUFFINS IMPUROS!" anunció Pinkie, levantando los muffins al cielo en un gesto exageradamente dramático.
 
-"¡YA ERA HORA! ¡LLEVO ESPERANDO HORAS!" respondió Discord, indignado (solo llevaba esperando 3 minutos).
+"¡YA ERA HORA! ¡LLEVO ESPERANDO HORAS!" respondió Discord indignado casi golpeando la mesa con sus garra. (solo llevaba esperando 3 minutos).
 
-Con suma delicadeza, el Draconequus extendió su garra derecha, tomó uno de los muffins y, con la concentración de un auténtico sibarita, lo acercó a su nariz para percibir el inapreciable aroma de aquellos infames bocadillos.
+Acto siguiente, con suma delicadeza, el Draconequus extendió su garra derecha, tomó uno de los muffins y, con la concentración de un auténtico sibarita, lo acercó a su nariz para percibir el inapreciable aroma de aquellos infames bocadillos.
 
-Un instante después, lo tiró a la basura y comenzó a comer emocionado la servilleta que lo acompañaba.
+Un instante después, lo tiró a la basura y comenzó a comer emocionado la blanca servilleta que lo acompañaba.
 
 "¡UHMMM! ¡SIIII! ¡EXQUISITOS! ¡TÚ SÍ SABES HACERLOS COMO ME GUSTAN, QUERIDA APPLEJACK!" exclamó emocionado Discord entre espasmos de placer.
 
@@ -44,7 +44,7 @@ A un lado, una alegre Pinkie Pie observaba cómo su arduo trabajo era 'consumido
 
 "Pinkie Pie, ¿qué piensas hacer entonces?"
 
-"Fácil, solo convenceré a todos mis amigos de Ponyville para que no asistan al referéndum de mañana. Empezando contigo, Fluttershy, ¡amiga!" dijo alegre la poni rosada, saltando al otro lado del mostrador y agitando su cola.
+"Fácil, solo convenceré a todos mis amigos de Ponyville para que no asistan al referéndum de mañana. Empezando contigo, Fluttershy, ¡amigaaaaaaa'A!" dijo alegre la poni rosada, saltando al otro lado del mostrador y agitando su cola.
 
 "Espera, Pinkie, eso no está bien. No puedes simplemente convencer a todos de no elegir algo solo porque son tus amigos y tu no estes de acuerdo. Además, esto es algo serio que cada uno debe decidir por sí mismo."
 
@@ -54,21 +54,21 @@ No obstante, a mitad de camino, antes de que Fluttershy intentara detenerla de n
 
 En un chasquido de dedos, Discord apareció frente a Pinkie Pie, bloqueando su camino. De inmediato, tomó a la poni rosada y le dio un afectuoso abrazo.
 
-"Haaa, querida Pinkie Pie, tus muffins estaban deliciosos, lo digo en serio. Por otro lado, como buen y gran amigo que soy, pienso que estás cometiendo un pequeño error de perspectiva al intentar hacer todo esto ...del boicot."
+"Haaa, querida Twilight, tus muffins estaban deliciosos, lo digo en serio. Por otro lado, como buen y gran amigo que soy, pienso que estás cometiendo un pequeño error de perspectiva al intentar hacer todo esto ...del boicot."
 
 "Gracias, Discord, y no es un boicot, es una 'protesta silenciosa de amigos'," respondió Pinkie, zafándose ágilmente del abrazo de Discord y retomando su camino.
 
-"Ah, sí, lo que digas, pero creo que podrías demostrar mejor tu punto de vista siendo un poco menos 'aburrida'..." dijo Discord en su característico tono sutil y oscuro.
+"Ah, sí, lo que digas, pero creo que podrías demostrar mejor tu punto de vista siendo un poco menos 'aburrida'..." termino de decir Discord en su característico tono sutil y oscuro.
 
-De inmediato, Pinkie detuvo su marcha y, en reversa, regresó frente a Discord.
+De inmediato, Pinkie detuvo su marcha y, en reversa, regresó frente a Discord. Plantandose de frente con él con firmeza.
 
 "¿Aburrida? ¿Qué estás insinuando, Discord?" preguntó Pinkie con una mirada crítica.
 
-"Nada... solo que pienso que hay otras formas mejores que andar visitando, casa por casa, a todo el mundo para compartir una idea. ¿Qué tal si esa idea llegara a la casa de cada uno de ellos por sí misma...?"
+"Nada... solo que pienso que hay otras formas mejores que andar visitando, casa por casa, a todo el mundo para compartir una idea. Siendo 'TANNN' ordenado. ¿Qué tal si en vez de hacer eso, esa idea llegara a la casa de cada uno de ellos por sí misma...?"
 
 "Uhmmm," intrigada, Pinkie levantó una ceja.
 
-"...ya que tu problema es que existe este temor de que estos 'no ponis' pudieran causar un problema en el futuro. ¿Qué tal traer ese problema ahora? Resolverlo como siempre lo hacen y, al final del día, reír todos juntos pensando en lo tontos que fueron al creer que realmente tenían que preocuparse por eso en primer lugar."
+"...ya que tu problema es que existe este temor de que estos 'no ponis' pudieran causar un problema en el futuro. ¿No seria mejor traer ese problema al presente? Resolver el problema como siempre lo hacen y, al final del día, reír todos juntos pensando en lo tontos que fueron al creer que realmente tenían que preocuparse por eso en primer lugar."
 
 Con una gran expresión reflexiva, Pinkie empezó a mirar al techo, sopesando la idea de Discord.
 
@@ -76,31 +76,33 @@ Quien no lo pensó tanto fue Fluttershy, que de inmediato encaró a su amigo Dra
 
 "¡Discord! Traer problemas a los demás solo para demostrar que podemos resolverlos es imprudente y..." Fluttershy no terminó sus palabras; una cremallera apareció mágicamente sobre su boca, sellándola por completo.
 
-Discord no le prestó atención y volvió su mirada a Pinkie, que ya había tomado una decisión.
+Discord, sin prestarle mas atencion a la pegaso, volvió su mirada a Pinkie, que ya había tomado una decisión.
 
 "¡Hecho! Espera... ¿no pensarás convertir a todos los residentes 'no ponis' en monstruos, verdad?" preguntó Pinkie con una mirada afilada.
 
 "¡Ahhh, por supuesto que no! Solo traeré a dos nuevos vecinos, algo difíciles, al vecindario... nada que tú, mi alegre y super amigable Pinkie Pie, no puedas manejar," respondió Discord mientras observaba sus afiladas garras.
 
-Mirándolo desde abajo, Pinkie aún estaba recelosa de lo que podría estar tramando el señor del caos. Pero fue un pensamiento pasajero en su agil cabeza y pronto pensó en las posibilidades... Si dos visitantes problemáticos llegaran al pueblo y, a pesar de sus diferencias, pudieran convivir amigablemente entre los ponis, ¿no sería eso prueba suficiente de que cualquiera podría hacerlo, sin importar cuántos y cómo fueran?
+Mirándolo desde abajo, Pinkie aún estaba recelosa de lo que podría estar tramando el señor del caos. Pero fue un pensamiento pasajero, en su agil cabeza las posibilidades corrian como liebres... Si dos visitantes problemáticos llegaran al pueblo y, a pesar de sus diferencias, pudieran convivir amigablemente entre los ponis, ¿no sería eso prueba suficiente de que cualquiera podría hacerlo, sin importar cuántos y cómo fueran?
 
-"¡Oki doki, Discord! Trae a esos nuevos vecinos, ¡estoy lista!" proclamó Pinkie, desafiante.
+"¡Oki doki, Discord! Trae a esos nuevos vecinos, ¡estoy lista!" proclamó Pinkie, descidida y desafiante.
 
 "¡Ese es el espíritu!" exclamó Discord alegremente con un chasquido de dedos.
 
-Una muda y angustiada Fluttershy miraba la espalda de Discord mientras este se despedía de una presurosa Pinkie Pie, que iba rápida hacia la entrada del pueblo, ansiosa por conocer a sus nuevos vecinos, y potenciales 'amigos'...
+Una muda y angustiada Fluttershy miraba la espalda de Discord mientras este se despedía de una presurosa Pinkie Pie, que iba rápida hacia la entrada del pueblo, ansiosa por conocer a sus nuevos vecinos, y potencialmente tambien 'nuevos amigos'...
 
 [---]
 
 [09:45 am] A las afueras de Ponyville, al inicio del incidente...
 
-En medio del camino a la entrada del pueblo, la sombra de dos figuras desconocidas apareció de la nada. Ambas entidades se encontraban desconcertadas por el repentino cambio del lugar en el que antes habían estado.
+En medio del camino a la entrada del colorido pueblo, la sombra de dos figuras desconocidas apareció de la nada. Ambas entidades se encontraban desconcertadas por el repentino cambio del lugar en el que antes habían estado.
 
-"Esto no parece para nada a la entrada de la escuela militar, Chum Chum..."
+"Esto no parece para nada a la entrada de la escuela militar, Chum Chum..." dijo el mas alto de los dos, mirando a su alrededor.
 
-"Haa... no estoy seguro, Fanboy, pero a juzgar por las respuestas confusas de mi teléfono, podría ser que hemos sido transportados por una fuerza desconocida a otro universo ajeno al nuestro." respondio su amigo examinando su celular apagado.
+"Haa... no estoy seguro, Fanboy, pero a juzgar por las respuestas confusas de mi teléfono, podría ser que hemos sido transportados por una fuerza desconocida a otro universo ajeno al nuestro." respondio su compañero de baja estatura examinando su moderno celular Nokia C2-01 del 2010.
 
-"O... podriamos estar sufriendo una alucinación colectiva debido al ataque psíquico de ¡un devorador de cerebros!" explotó en pánico Fanboy, agarrándose la cabeza con desesperación.
+Fanboy y Chum-Chum, que momentos antes se hallaban de viaje en un bus, tenian razones reales que justificaran la estupidez que se reflejaba en sus rostros.
+
+"Oooooooooooo... podriamos estar sufriendo una alucinación colectiva debido al ataque psíquico de ¡un devorador de cerebros!" explotó en pánico Fanboy, agarrándose la cabeza con desesperación.
 
 "Bueno, eso también y ... ¡Ahhh!" Tanto Fanboy como Chum Chum se agacharon cuando una criatura desconocida pasó rápidamente volando sobre sus cabezas.
 
@@ -118,7 +120,7 @@ Chum Chum comenzó a saltar emocionado ante el descubrimiento. Pero para Fanboy,
 
 "Uhmm... en todo caso, debemos ser sumamente cuidadosos e investigar a fondo a cada uno de esos supuestos 'ponis'," respondió Fanboy con una mirada afilada, observando el pueblo cercano.
 
-"Investigar a fondo..." repitió Chum Chum, soltando baba de su boca mientras imaginaba las pruebas que tendría que hacer para 'comprobar' la inocencia de aquellos ponis.
+"Investigar a fondo..." repitió Chum Chum, soltando baba de su boca mientras ya imaginaba las pruebas que tendría que hacer para 'comprobar' la inocencia de aquellos ponis.
 
 "Muy a fondo..." volvió a repetir Fanboy, colocándose unos elásticos guantes blancos sobre los guantes que ya llevaba puestos.
 
