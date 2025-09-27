@@ -100,7 +100,7 @@ En medio del camino a la entrada del colorido pueblo, la sombra de dos figuras d
 
 "Haa... no estoy seguro, Fanboy, pero a juzgar por las respuestas confusas de mi teléfono, podría ser que hemos sido transportados por una fuerza desconocida a otro universo ajeno al nuestro." respondio su compañero de baja estatura examinando su moderno celular Nokia C2-01 del 2010.
 
-Fanboy y Chum-Chum, que momentos antes se hallaban de viaje en un bus, tenian razones reales que justificaran la estupidez que se reflejaba en sus rostros.
+Fanboy y Chum-Chum, que momentos antes se hallaban de viaje en un bus, esta vez tenian razones reales que justificaran la estupidez cotidiana en sus rostros.
 
 "Oooooooooooo... podriamos estar sufriendo una alucinación colectiva debido al ataque psíquico de ¡un devorador de cerebros!" explotó en pánico Fanboy, agarrándose la cabeza con desesperación.
 
@@ -118,7 +118,7 @@ Chum Chum comenzó a saltar emocionado ante el descubrimiento. Pero para Fanboy,
 
 "Ay... pero ¿y si no hay devoradores de cerebros, Fanboy?"
 
-"Uhmm... en todo caso, debemos ser sumamente cuidadosos e investigar a fondo a cada uno de esos supuestos 'ponis'," respondió Fanboy con una mirada afilada, observando el pueblo cercano.
+"Uhmm... bueno, en todo caso, debemos ser sumamente cuidadosos e investigar a fondo a cada uno de esos supuestos 'ponis'," respondió Fanboy con una mirada afilada, observando el pueblo cercano.
 
 "Investigar a fondo..." repitió Chum Chum, soltando baba de su boca mientras ya imaginaba las pruebas que tendría que hacer para 'comprobar' la inocencia de aquellos ponis.
 
@@ -128,7 +128,7 @@ Así, ambas entidades comenzaron a avanzar por el camino, como emisarios de medi
 
 [---]
 
-[10:00 am] Al día siguiente del incidente en la alcaldía
+[10:00 am] La alcaldía, al día siguiente del incidente...
 
 La alcaldesa Mare se encontraba en su oficina, disfrutando tranquilamente de su café favorito mientras leía las noticias del periódico de la mañana.
 
@@ -136,11 +136,10 @@ Nada en el encabezado era noticia para ella ...
 
 "¡TERROR EN PONYVILLE! - TESTIMONIO DE HABITANTES ATACADOS POR MONSTRUOS DESCONOCIDOS - ¡SEÑOR DEL CAOS SALVA EL DÍA!"
 
-La alcaldesa terminó su café y dejó el periódico a un lado. Tenía más cosas que hacer esa mañana.
+La alcaldesa terminó su café y dejó el periódico a un lado. La mañana avanzaba, tenia cosas que hacer.
 
 Revisó uno de sus cajones en busca de algún papel en blanco, apartando la solicitud de la princesa Twilight para llevar a cabo un referéndum y las últimas encuestas que le daban un 100% de aprobación para el nuevo reglamento de convivencia. Finalmente, la alcaldesa encontró algunos papeles limpios.
 
-Pero, cuando sacó su pluma para escribir, se detuvo.
+Sin embargo, justo cuando sacó su pluma para escribir, se detuvo.
 
-"Ju, ju. Buen trabajo, alcaldesa Mare, siempre haciendo de Equestria un lugar grande como siempre..." se dijo a sí misma con una sonrisa antes de comenzar a escribir.
-
+"Ju, ju. Buen trabajo, alcaldesa Mare, haciendo de Equestria un lugar grande como siempre..." se dijo a sí misma con una sonrisa antes de comenzar a escribir.

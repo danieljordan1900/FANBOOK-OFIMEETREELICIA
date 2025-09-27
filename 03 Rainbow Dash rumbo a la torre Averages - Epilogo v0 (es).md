@@ -1,3 +1,5 @@
+# 03 Rainbow Dash rumbo a la torre Averages - Epilogo v0 (es)
+
 En la torre Averages, poco antes del atardecer.
 
 "Bueno, señorita Dash, creo que hablo en nombre de ambas cuando digo que esta reunión ha sido más productiva de lo esperado", dijo Magi reclinándose en su asiento. "Estoy totalmente segura de que disfrutará de todos los beneficios que ofrece nuestro paquete Premium, y no se preocupe por el papeleo. El contrato que acaba de firmar cubre todos los costos de..."
@@ -79,4 +81,3 @@ Dash tenía miedo. No podía mover sus alas, ni sus extremidades, ni su boca, ni
 Magi le devolvió la respuesta con su propia sonrisa brillante envuelta en oscuridad.
 
 En su interior, la pegaso arcoíris suplicaba que alguien la sacara de aquella pesadilla.
-
