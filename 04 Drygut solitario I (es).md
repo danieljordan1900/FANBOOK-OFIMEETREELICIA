@@ -248,36 +248,35 @@ Las plumas de distintos tamaños continuaban cayendo, suaves como una lluvia de 
 
 "Debe ser mágico..." pensó el joven, dando saltos para alcanzar las más grandes que descendían del cielo. No sabía nada de magia, pero empezaba a intuirlo. Sin consultar a nadie, comenzó a tomar las plumas más brillantes con su pico y a guardarlas entre sus alas.
 
-"Jajaja, tonto, tonto, eso no sirve," escuchó de pronto a sus espaldas.
+"Jajaja, tonto, tonto, eso no sirve", escuchó de pronto a sus espaldas.
 
-Drygut se puso en guardia. Reconoció la voz de inmediato; era inconfundible. Se dio la vuelta y allí estaba otro pavo-halcón, joven como él, pero con una mirada salvaje y una expresión sonriente que apenas lograba desviar la atención del moco verde que asomaba por su pico.
+Drygut se puso en guardia. Reconoció la voz de inmediato; era inconfundible. Se dio la vuelta y allí estaba otro pavo-halcón, joven como él, pero con una mirada salvaje y una sonrisa que apenas lograba desviar la atención del moco verde que asomaba por su pico.
 
 Era Fathungry.
 
-"No te importa," respondió Drygut, áspero, mientras continuaba recogiendo las plumas.
+"No te importa", respondió Drygut, áspero, mientras continuaba recogiendo las plumas.
 
 "Sí me importa. 'Las plumas divinas' son solo para el líder del clan. Ese seré yo."
 
-"¿Ah, sí? Pues aún no lo eres. No lo serás. Draga será el líder," replicó Drygut, aunque no tenía ni idea de a qué se refería Fathungry con aquello de 'las plumas divinas'.
+"¿Ah, sí? Pues aún no lo eres. No lo serás. Draga será el líder", replicó Drygut, aunque en realidad no tenía idea de qué hablaba Fathungry con aquello de 'las plumas divinas'.
 
 "¿Draga? Jajaja, ¿ese pata coja? ¡Él no es nada! Lo mataré y me comeré su corazón. ¡Todos lo verán!"
 
-"Hazlo entonces, ahí está," respondió Drygut, señalando con una garra hacia el otro lado del grupo, donde un fornido pavo-halcón joven se encontraba rodeado de varios adultos.
+"Hazlo entonces, ahí está", respondió Drygut, señalando con una garra hacia el otro lado del grupo, donde un fornido pavo-halcón joven se encontraba rodeado de varios adultos.
 
 "No, ahora no. Ese cobarde siempre anda con sus gallinas. Esperaré a que esté solo..." dijo Fathungry, mirando en esa dirección.
 
 "¿Ah, sí? Pero si está solo, ¿cómo verán que fuiste tú?" se burló Drygut.
 
-"Lo verán. Créeme, todos lo verán... jajaja," rió Fathungry con un cacareo siniestro.
+"Lo verán. Créeme, todos lo verán... jajaja", rió Fathungry con un cacareo siniestro.
 
-A Drygut no le gustaba Fathungry; su risa le inquietaba. Además, era un entrometido. Sin embargo, por eso mismo conocía a todos y era muy astuto. Sabía muchas cosas que otros ignoraban y presumía constantemente de que incluso los adultos le consultaban con frecuencia.
+A Drygut no le gustaba Fathungry; su risa lo inquietaba. Además, era un entrometido. Conocía a todos y era muy astuto. Sabía cosas que otros ignoraban y presumía de que incluso los adultos lo consultaban.
 
-"Quizá en el futuro sí se convierta en líder del clan..." le había advertido su padre en una ocasión.
-Drygut lo reflexionó.
+"Quizá en el futuro sí se convierta en líder del clan..." le había advertido su padre alguna vez.
 
-"Oye, Fathungry..." comenzó a decir, dudoso. "Cuando seas líder del clan, ¿qué harás con estas plumas?"
+"Oye, Fathungry..." comenzó a decir Drygut, dudoso. "Cuando seas líder del clan, ¿qué harás con estas plumas?"
 
-Fathungry lo miró en silencio un momento con aquellos ojos afilados. Justo cuando Drygut iba a preguntarle por qué lo miraba así, Fathungry estalló en risas.
+Fathungry lo miró en silencio con aquellos ojos afilados. Justo cuando Drygut iba a preguntarle por qué lo miraba así, estalló en risas.
 
 "¿Qué es tan gracioso?" increpó Drygut, ofendido.
 
@@ -297,18 +296,19 @@ Fathungry lo miró en silencio un momento con aquellos ojos afilados. Justo cuan
 
 "¡Qué!" Drygut abrió mucho los ojos, mirando las plumas que había recogido.
 
-"Siiiiii. Y si logras prenderle fuego a una de ellas y te echas las cenizas sobre el cuerpo, ¡te convertirás en el ave más poderosa del mundo!" exclamó emocionado Fathungry, estirando sus alas y dejando escapar más moco verde de su nariz.
+"Siiiiii. Y si logras prenderle fuego a una de ellas y te echas las cenizas sobre el cuerpo, ¡te convertirás en el ave más poderosa del mundo!" chilló emocionado Fathungry, estirando sus alas y dejando escapar más moco verde de su nariz.
 
-Drygut retrocedió. Era desagradable ver a Fathungry en ese estado, pero no protestó. Solo anotó en lo profundo de su mente aquellas palabras.
+Drygut retrocedió. Era desagradable verlo en ese estado, pero no protestó. Solo anotó en lo profundo de su mente aquellas palabras.
 
-"Espera... ¿Pero cómo? Aquí no parece haber aire..." respondió intrigado, agitando sus alas en aquel ambiente muerto. Quizá no sabía nada de magia, pero los instintos innatos de su especie ya le habían hecho entender que en ese lugar no había ni una pizca de oxígeno.
+"Espera... ¿Pero cómo? Aquí no parece haber aire..." respondió intrigado, agitando sus alas en aquel ambiente muerto. Quizá no sabía nada de magia, pero sus instintos ya le habían hecho entender que allí no había ni una pizca de oxígeno.
 
-"Ah, sí... ese es el misterio," respondió Fathungry burlón. "Se supone que el gran ancestro de los pavo-halcones lo logró de alguna forma. ¿Secuestró un dragón? Vaya uno a saber... He escuchado muchas historias sobre eso..."
+"Ah, sí... ese es el misterio", respondió Fathungry con burla. "Se supone que el gran ancestro de los pavo-halcones lo logró de alguna forma. ¿Secuestró un dragón? Vaya uno a saber... He escuchado muchas historias sobre eso..."
 
 Murmuró Fathungry, deteniéndose como si meditara algo.
+
 Un silencio se levantó entre ambos.
 
-"Yyyyyyyyyyyyhh," un chillido resonó. El líder del clan anunciaba la partida de aquel lugar.
+"Yyyyyyyyyyyyhh", un chillido resonó. El líder del clan anunciaba la partida de aquel lugar.
 
 "Es hora de..." comenzó a decir Drygut, pero al voltear, Fathungry ya no estaba. A lo lejos, se alejaba con su característico falso paso cojo.
 
