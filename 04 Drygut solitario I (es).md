@@ -1,4 +1,4 @@
-# Drygut Solitario I
+# Drygut Solitario I (es)
 
 Entre las cumbres de unas altas montañas, la luz del amanecer se filtraba lentamente a través de las nubes, iluminando el extenso valle verde que descendía por sus laderas.
 
