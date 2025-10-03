@@ -78,7 +78,7 @@ Antes de abrir la entrada, se detuvo un instante y giró la cabeza para mirar po
 
 Sus ojos claros se posaron en su hijo mayor.
 
-"No olvides tu promesa" dijo, con una gravedad cargada de fatalidad, como si aquellas palabras fueran la última voluntad de un sabio y viejo pavo-halcón.
+"No olvides tu promesa" dijo, con una gravedad que desprendía fatalidad, como si aquellas palabras fueran la última voluntad de un sabio y viejo pavo-halcón.
 
 Drygut, con el corazón en un puño, intentó hablar, pero las palabras se le atoraron en la garganta. Su padre, sin esperar respuesta, se volvió y, abriendo la entrada del nido, desplegó sus majestuosas alas. Su silueta se alzó en vuelo, desapareciendo en la cegadora luz blanca del exterior.
 
@@ -88,13 +88,13 @@ Ninguno de los presentes volvería a verlo volar jamás.
 
 "Padre... padre... ¡padreeeeee!... Aurhhhhhhg."
 
-Drygut se despertó bruscamente, su sueño roto por una presión abrumadora en su pecho. Con un espasmo, vomitó violentamente, su cuerpo convulsionando durante minutos antes de que los escalofríos y el sudor intenso lo hicieran calmarse un poco. No estaba bien. Lo sabía.
+Drygut se despertó bruscamente, su sueño roto por una presión abrumadora en el pecho. Con un espasmo, vomitó violentamente; su cuerpo convulsionó durante minutos antes de que los escalofríos y el sudor intenso lo obligaran a calmarse un poco. No estaba bien. Lo sabía.
 
 Podía sentir el calor febril bajo sus plumas, la fiebre extendiéndose como fuego en su interior. Su visión se nublaba, y un mareo paralizante amenazaba con derribarlo. Necesitaba medicina, y la necesitaba de inmediato.
 
 Con el pico todavía manchado de saliva, comenzó a buscar frenéticamente entre las plumas de sus alas, su ansiedad creciendo a la par de su miedo de no encontrar lo que necesitaba. Finalmente, lo halló.
 
-Una larga cinta verde, decorada con pequeños frutos amarillos que parecían limones, se deslizó de su plumaje. Tirando de ella con su pico, Drygut arrancó uno de los frutos y lo engulló de un solo bocado.
+Una larga cinta verde, decorada con pequeños frutos amarillos que parecían limones, se deslizó de su plumaje. Tirando de ella con el pico, Drygut arrancó uno de los frutos y lo engulló de un solo bocado.
 
 Una ola de acidez intensa y una sensación refrescante se esparcieron por su interior. Tras unos minutos de tenso reposo, la fiebre y el mareo comenzaron a ceder. Poco a poco, el control sobre sus sentidos volvió a él.
 
@@ -102,25 +102,25 @@ Con esfuerzo, Drygut se puso de pie, extendió sus alas y las agitó ligeramente
 
 Con la mirada sombría, dirigió sus ojos al suelo donde yacía la cinta verde. Quedaban solo cinco frutos amarillos.
 
-"Cinco semanas...," pensó desolado, contemplando la poca medicina que le quedaba.
+"Cinco semanas..." pensó desolado, contemplando la poca medicina que le quedaba.
 
-Sus cálculos eran correctos. Aquellos frutos amarillos, similares a limones, no eran más que cápsulas de medicina, esenciales para curar cualquier malestar. Los pavo-halcones, grandes criaturas rapaces, eran propensos a enfermedades debido a su naturaleza poco higiénica y su exposición constante a parásitos. Para ellos, estas cápsulas eran un antídoto vital, consumido semanalmente como prevención. Sin ellas, la enfermedad o una infección latente acabarían por consumirlos. Los machos adultos, como Drygut, que viajaban constantemente, eran los más vulnerables, mientras que las hembras adultas solo las necesitaban en su vejez.
+Sus cálculos eran correctos. Aquellos frutos amarillos, similares a limones, no eran más que cápsulas de medicina, esenciales para curar cualquier malestar. Los pavo-halcón, grandes criaturas rapaces, eran propensos a enfermedades debido a su naturaleza poco higiénica y a la exposición constante a parásitos. Para ellos, estas cápsulas eran un antídoto vital, consumido semanalmente como prevención. Sin ellas, la enfermedad o una infección latente acabarían por consumirlos. Los machos adultos, como Drygut, que viajaban constantemente, eran los más dependientes de estas cápsulas; mientras que las hembras solo las necesitaban en la vejez.
 
 Esta milagrosa medicina era uno de los secretos mejor guardados de su especie. Solo el líder del clan y sus allegados podían distribuirla, asegurando así el control sobre los suyos y su bienestar médico.
 
 Con mucho cuidado, Drygut comenzó a enrollar nuevamente la cinta verde, asegurándose de que todas las cápsulas estuvieran intactas y bien resguardadas. Perder una en medio de su exilio significaría una semana menos de vida.
 
-Después de varios minutos acomodando sus plumas y asegurándose de que la medicina estuviera bien oculta, Drygut se sintió más calmado. Comenzó a observar a su alrededor.
+Después de varios minutos acomodando sus plumas y confirmando que la medicina estaba bien oculta, Drygut se sintió más calmado. Comenzó a observar a su alrededor.
 
 Un viento frío llegó desde el norte, despejando la neblina y revelando las escarpadas y boscosas montañas que lo rodeaban.
 
-Reflexionando, Drygut fijó su mirada en el horizonte, en el gran norte que se asomaba entre las cumbres nevadas a lo lejos.
+Reflexionando, Drygut fijó su mirada en el horizonte, en el Gran Norte que se asomaba entre las cumbres nevadas a lo lejos.
 
-"¿Debería volver al gran norte?" se preguntó por un instante, pero sacudió la cabeza en negación. No podía hacerlo. Estaba demasiado lejos, y no tenía la fuerza para ese viaje. Además, llegar solo, sin el resto del clan, sería una ofensa para su madre y hermanas que aún vivían allí. Quizás podría obtener algo de medicina adicional si suplicaba, pero cuando se enteraran de su exilio... ¿a dónde iría?
+"¿Debería volver al Gran Norte?" se preguntó por un instante, pero sacudió la cabeza en negación. No podía hacerlo. Estaba demasiado lejos y no tenía la fuerza para ese viaje. Además, llegar solo, sin el resto del clan, sería una ofensa para su madre y sus hermanas que aún vivían allí. Quizás podría obtener algo de medicina adicional si suplicaba, pero cuando se enteraran de su exilio... ¿a dónde iría?
 
 Tenía que tomar otro camino. No quería involucrar a su familia en sus problemas. Tal vez... si volvía al sur.
 
-El viento cesó gradualmente, y la neblina comenzó a cerrar filas de nuevo a su alrededor. Un olor fétido lo asaltó de pronto. Al mirar el suelo donde se encontraba, notó lo arruinado que estaba su nido, deteriorado por la lluvia y ensuciado por su propio vómito. Sin interés por permanecer allí, decidió marcharse.
+El viento cesó gradualmente, y la neblina comenzó a cerrar filas de nuevo a su alrededor. Un olor fétido lo asaltó de pronto. Al mirar el suelo donde se encontraba, notó lo arruinado que estaba su nido, deteriorado por la lluvia y ensuciado con su propio vómito. Sin interés por permanecer allí, decidió marcharse.
 
 Con un poderoso aleteo, la gran ave corrió por la empinada colina hasta elevarse en el cielo, dejando atrás el montón de troncos podridos que había tenido por hogar hasta entonces.
 
