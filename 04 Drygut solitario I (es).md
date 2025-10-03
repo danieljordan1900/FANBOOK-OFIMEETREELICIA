@@ -90,33 +90,31 @@ Pero Drygut, dejando atrás a la parlanchina criatura, se desvaneció en la nieb
 
 [---]
 
-Horas después, en lo alto de una colina rocosa, sentado sobre un nido hecho de ramas podridas, Drygut contemplaba la nublada extensión del valle.
+Horas después, en lo alto de una colina rocosa, sentado sobre un nido de ramas podridas, Drygut contemplaba la gris extensión del valle.
 
-No se sentía bien, y no era a causa del intenso frío que lo rodeaba.
+No se hallaba bien, y no era por el frío intenso que lo envolvía.
 
-"Pur, pur, pur..." comenzó a canturrear con tristeza.
+"Pur, pur, pur…" canturreó con tristeza.
 
-El reciente encuentro con aquella extraña criatura semejante a un poni le había arrebatado todo el buen ánimo que había logrado reunir por la mañana.
+El encuentro con aquella extraña criatura semejante a un poni le había arrebatado el poco ánimo que había reunido en la mañana.
 
-Comer en exceso siempre le ayudaba a olvidar sus problemas, pero esta vez no parecía surtir efecto.
+Comer en exceso solía bastar para enterrar sus problemas, pero esta vez no surtía efecto.
 
-"Pur, pur, pur..." se lamentaba Drygut.
+"Pur, pur, pur…" volvió a gimotear, abatido.
 
-Oscuras nubes avanzaban pesadas en el cielo, y pronto la lluvia comenzó a caer. La colorada cabeza del pavo-halcón se ocultó bajo su plumaje.
+El clima habia cambiado radicalmente desde la mañana. Oscuras nubes cubrieron el cielo, y la lluvia pronto comenzó a caer. La cabeza colorada del pavo-halcón se ocultó bajo el plumaje.
 
-Se sentía realmente mal.
+Se sentía miserable.
 
-Cualquiera con suficiente conocimiento sobre los pavo-halcones, al verlo, habría adivinado cuál era su problema.
+Con solo verlo, cualquiera con suficiente conocimiento de los pavo-halcones lo habría adivinado el motivo: Drygut estaba solo.
 
-Drygut estaba solo.
+Aquellas aves vivían en clanes numerosos y sociables. Había jerarquías y ocasionales disputas violentas, pero en general reinaba la camaradería. Un pavo-halcón solitario era una rareza.
 
-Aquellas aves vivían en clanes numerosos y sociables. Por supuesto, había jerarquías y ocasionales disputas violentas, pero en general reinaba un buen ambiente entre ellos. Ver a un pavo-halcón solitario era una rareza.
-
-Y Drygut con amargura entendía muy bien por qué se encontraba en esa situación.
+Y Drygut sabía con amargura por qué se encontraba en esa situación.
 
 Semanas atrás, se había separado de su clan por una negligencia propia. Desorientado, terminó envuelto en un peligro del que, por diversos factores, logró escapar gracias a criaturas mucho más pequeñas que él. Aunque consiguió regresar a salvo a su clan tras recuperarse, lo recibieron con hostilidad. Se había corrido el rumor de que había aceptado ayuda de esas criaturas y, peor aún, que se había hecho amigo de ellas.
 
-Para los pavo-halcones, aquella conducta hacia especies consideradas inferiores era inadmisible. Orgullosos y altivos, jamás toleraban la idea de necesitar la ayuda de nadie más a parte de su raza. Drygut trató de convencerlos de que todo era un malentendido, un monton de chismes sin fundamentos, pero el líder del clan, el temible Fathungry, estaba ausente. El juicio recayó en otros que no lo apreciaban, y fue implacable.
+Para los pavo-halcones, aquella conducta hacia especies consideradas inferiores era inadmisible. Orgullosos y altivos, jamás toleraban la idea de necesitar la ayuda de nadie más a parte de los de su propia raza. Drygut trató de convencerlos de que todo era un malentendido, un montón de chismes sin fundamento, pero el líder del clan, el temible Fathungry, estaba ausente. El juicio quedó en manos de otros que no lo apreciaban, y fue implacable.
 
 Su sentencia fue el exilio.
 
@@ -132,7 +130,7 @@ La lluvia arreció sobre su cuerpo, ocultando las pequeñas lágrimas que rodaba
 
 "Pur, pur, pur..."
 
-El canturreo de Drygut se perdió entre la tormenta, mientras el sueño y el dolor lo arrastraban hacia pensamientos sombríos y lejanos del pasado...
+El lamento de Drygut se perdió entre la tormenta, mientras el sueño y el dolor lo arrastraban hacia pensamientos sombríos y recuerdos lejanos del pasado.
 
 [---]
 
