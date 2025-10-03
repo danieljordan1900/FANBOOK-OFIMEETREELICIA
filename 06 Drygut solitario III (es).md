@@ -194,7 +194,7 @@ Nuevamente, intentó escribir en el suelo, borrando lo anterior y comenzando de 
 
 "¿Quieres que te... ¿raspe el cuello con un cuchillo?" leyó en voz alta. "¿Tienes comezón en el cuello? ¡Ok, puedo hacer eso!"
 
-"¡Córtate el cuello con un cuchillo!" gritó Drygut en su idioma, pero Autumn solo lo miró con una sonrisa, sin entender una palabra.
+"¡Callate y córtate el cuello con un cuchillo!" gritó Drygut en su idioma, pero Autumn solo lo miró con una sonrisa, sin entender una palabra.
 
 Molesto y frustrado, Drygut se dejó caer al suelo, rendido. Ya no le importaba nada más, solo quería digerir su comida y largarse de allí. No eliminaría a la kirin; ni siquiera quería saber a qué sabía su carne.
 
