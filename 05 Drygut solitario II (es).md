@@ -130,33 +130,33 @@ El vuelo de Drygut durante la tarde había sido monótono y gris. La niebla dens
 
 Sobrevolando el valle, no encontró nada que despertara su interés. El río que seguía en su trayecto bañaba las costas de pequeñas aldeas ribereñas, demasiado rurales y aisladas en comparación con la que había asaltado en la madrugada. La zona boscosa tampoco ofrecía áreas de ganadería o comercio; no había nada digno de ser comido o robado.
 
-Refugiarse en aquellas tierras aisladas empezaba a parecer un gran error. "Tal vez si hubiese viajado más al este, donde hay grandes campos de cultivo, tendría algo mejor..." pensó Drygut, aburrido. Aunque no tenía hambre, gracias a los efectos de la medicina que había tomado antes, la falta de actividad siempre lo ponía ansioso, y esa ansiedad lo llevaba a comer sin necesidad. En su vida anterior, antes del exilio, acatar órdenes sin cuestionar era todo lo que hacía en su tiempo libre.
+Refugiarse en aquellas tierras aisladas empezaba a parecer un gran error. "Tal vez si hubiese viajado más al este, donde hay grandes campos de cultivo, tendría algo mejor..." pensó Drygut, aburrido. Aunque no tenía hambre, gracias a los efectos de la medicina que había tomado antes, la falta de actividad siempre lo ponía ansioso, y esa ansiedad lo llevaba a comer sin necesidad. En su vida anterior, antes del exilio, acatar órdenes sin cuestionar era lo único que hacía en su tiempo libre.
 
 Ahora, en cambio, tenía que pensar en todo, y pensar se estaba volviendo una tarea insoportable.
 
-"Padre..." murmuró Drygut, deprimido, mientras sus pensamientos volvían a los recuerdos de su viejo padre.
+"Padre..." murmuró Drygut, deprimido, mientras sus pensamientos volvían a la memoria de su viejo padre.
 
-Un pavo-halcón sabio entre los suyos, alguien que Drygut, siendo el mayor de sus hijos, nunca llegó a igualar.
+Un pavo-halcón sabio entre los suyos, alguien a quien Drygut, siendo el mayor de sus hijos, nunca llegó a igualar.
 
 "Lleva el fuego de la pluma divina a la próxima generación..." le había hecho prometer su padre. En aquel entonces, Drygut había contestado con entusiasmo, decidido a enorgullecer a su familia.
 
-Una promesa hecha en su juventud que, ahora en su adultez, se sentía como una meta imposible.
+Una promesa hecha en su juventud que, ahora en la adultez, se sentía como una meta imposible.
 
 "...el fuego de la pluma divina..." pensaba Drygut. Intentaba recordar los sabios consejos de su padre, cuando todo parecía más fácil. Pero ahora, la incapacidad para pensar por sí mismo lo atormentaba. Lo único a lo que podía aferrarse eran esos recuerdos desvanecidos por el tiempo. Tal vez en ellos encontraría la respuesta a las preguntas que tanto lo angustiaban.
 
 Cerrando los ojos y dejándose guiar por el viento, Drygut comenzó a imaginar aquellos días, a visualizar a su padre volando delante de él... hablándole...
 
-"... el fuego que llevamos dentro... una voluntad ardiente como el sol... una llama capaz de quemar el acero de una espada... y sanar cualquier herida que esta cause... es el fuego que haría arder una pluma divina..."
+"...el fuego que llevamos dentro... una voluntad ardiente como el sol... una llama capaz de quemar el acero de una espada... y sanar cualquier herida que esta cause... es el fuego que haría arder una pluma divina..."
 
 Así le había hablado su padre, pero Drygut nunca lo entendió, y ahora tampoco lo comprendía. ¿Un fuego que quemaba acero y también sanaba? En toda su vida de viajes migratorios, ningún pavo-halcón había visto algo semejante. Se creía que ese fuego pertenecía únicamente a los dragones ancestrales, capaces de transformar lo existente con su aliento.
 
-Drygut nunca conoció a alguno de esos miticos dragones. Tampoco sabía dónde encontrarlos. Los dragones que ya conocía eran demasiado jóvenes para ser llamados verdaderos dragones ancestrales. Tal vez el ex gran señor de los Dragones, Torch, podria catalogarse en esa posición. Pero ¿Quien podria confirmarselo?
+Drygut nunca conoció a ninguno de esos míticos dragones. Tampoco sabía dónde encontrarlos. Los dragones que ya conocía eran demasiado jóvenes para ser llamados verdaderos dragones ancestrales. Tal vez el ex gran señor de los dragones, Torch, podría catalogarse en esa posición. Pero ¿quién podría confirmárselo?
 
 Frustrado, Drygut abrió los ojos y dejó de pensar. Sabía demasiado poco. Pensar tanto le causaba dolor de cabeza, pero era lo mejor y lo único que podía hacer en ese momento.
 
-Volvió a cerrar los ojos, dispuesto a esforzarse más en recordar, pero entonces algo lo interrumpió. Sintió un cambio en el aire... un cambio inquietante...
+Volvió a cerrar los ojos, dispuesto a esforzarse más en recordar, pero entonces algo lo interrumpió. Sintió un cambio en el aire... un cambio inquietante.
 
-Con sus sentidos alerta, Drygut enfocó su mirada en el horizonte, siguiendo el curso del río.
+Con sus sentidos alerta, Drygut enfocó la mirada en el horizonte, siguiendo el curso del río.
 
 A lo lejos, una larga columna de humo se alzaba hacia el cielo, manchándolo con una tinta marrón y gris.
 
