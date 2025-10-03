@@ -1,88 +1,88 @@
 # 05 Drygut solitario II (es)
 
-Hacía mucho frío esa mañana. Podía sentirlo en lo más profundo de su corazón.
+Hacía mucho frío aquella mañana. Podía sentirlo en lo más profundo de su corazón.
 
-Somnoliento y envuelto en oscuridad, abrió los ojos en medio de las tinieblas. Todo era nebuloso; una capa de escarcha cubría sus párpados. Tras sacudir la cabeza y estornudar, el joven Drygut pudo contemplar con mayor claridad el lúgubre entorno que lo rodeaba.
+Somnoliento y envuelto en oscuridad, abrió los ojos en medio de las tinieblas. Todo era nebuloso; una fina capa de escarcha cubría sus párpados. Tras sacudir la cabeza y estornudar, el joven Drygut pudo contemplar con mayor claridad el lúgubre entorno que lo rodeaba.
 
-Una pálida luz azulada iluminaba el interior del nido. A su alrededor, en medio de un desorden de plumas y hojas secas, distinguió a sus hermanos y hermanas durmiendo juntos, acurrucados lo más que podían para mantener el calor corporal entre ellos. No muy lejos, su madre, visible como una silueta vigilante, también dormía, pero de pie cerca de la entrada del hogar.
+Una pálida luz azulada iluminaba el interior del nido. A su alrededor, entre un desorden de plumas y hojas secas, distinguió a sus hermanos y hermanas durmiendo juntos, acurrucados para mantener el calor corporal. No muy lejos, su madre, visible como una silueta vigilante, también dormía, pero de pie cerca de la entrada del hogar.
 
-Precisamente de esa entrada, una abertura circular en la piedra tapada por un burdo pedazo de madera mal unido, se filtraba el creciente brillo del nuevo día. Desde el sombrío interior del nido, la luminosidad diurna se distinguía como un irregular y bello anillo de luz celeste en medio de las sombras.
+Precisamente de esa entrada (una abertura circular en la piedra, tapada por un burdo pedazo de madera mal ajustado) se filtraba el creciente brillo del nuevo día. Desde el sombrío interior del nido, aquella claridad se distinguía como un irregular y hermoso anillo de luz celeste en medio de las sombras.
 
-Pero no solo la luz se colaba por las grietas de la rudimentaria puerta. Por momentos, un aire helado invadía también el interior del nido.
+Pero no solo la luz se colaba por las grietas de la rudimentaria puerta. A intervalos, un aire helado invadía también el interior.
 
-Invasivo y abrasivo, Drygut sintió ese viento gélido morder su escamosa piel, estremeciéndolo y haciéndolo retroceder entre sus plumas. Sin embargo, a pesar de la crudeza del ambiente, no se sentía deprimido en absoluto. Lo que para otros sería un lugar angustiante, para Drygut y cualquier otro pavo-halcón era un lujo.
+Invasivo y abrasivo, aquel viento gélido mordió la escamosa piel de Drygut, estremeciéndolo y haciéndolo retroceder entre sus plumas. Sin embargo, a pesar de la crudeza del ambiente, no se sentía deprimido. Lo que para otros sería un lugar angustiante, para Drygut "y para cualquier pavo-halcón" era un lujo.
 
-Desafiando a su entorno, su familia y el resto de la colonia de pavo-halcones habitaban en cuevas en las paredes de un profundo e inaccesible cañón, un lugar aislado y secreto que los protegía de los enemigos y les ofrecía refugio contra las feroces ventiscas que azotaban las tierras árticas del gran norte.
+Desafiando a su entorno, su familia y el resto de la colonia habitaban en cuevas excavadas en las paredes de un profundo e inaccesible cañón, un refugio aislado y secreto que los protegía de enemigos y de las feroces ventiscas que azotaban las tierras árticas del Gran Norte.
 
-El joven Drygut, imaginando los páramos blancos y desolados de esas tierras en invierno, cerró los ojos de nuevo. Un sopor intenso lo envolvía otra vez. A punto de retomar su sueño, seguro de que nada interrumpiría su hibernación, se hundió en el cálido plumaje de los familiares que lo rodeaban.
+El joven Drygut, imaginando los páramos blancos y desolados de esas tierras en invierno, cerró los ojos otra vez. El sopor lo envolvía de nuevo y, seguro de que nada interrumpiría su hibernación, se hundió en el cálido plumaje de los familiares que lo rodeaban.
 
-De repente, un sonido, luego otro y otro más... muchos sonidos, como aplausos, resonaron lejanamente desde el exterior.
+De repente, un sonido... luego otro... y después muchos más, como aplausos, resonaron lejanamente desde el exterior.
 
 Entre sueños, todos en el nido comenzaron a despertar.
 
-Al reconocerlos finalmente, la ansiedad apretó el buche de Drygut, haciéndolo agitarse. Sus hermanos también se movieron inquietos, despertando y estirando sus cuellos. Su madre, siempre vigilante, sacudió la escarcha de sus plumas y comenzó a retirar los troncos que bloqueaban la entrada, atenta a los ruidos del exterior.
+Al reconocerlos finalmente, la ansiedad apretó el buche de Drygut, haciéndolo agitarse. Sus hermanos también se movieron inquietos, estirando los cuellos. Su madre, siempre vigilante, sacudió la escarcha de sus plumas y comenzó a retirar los troncos que bloqueaban la entrada, atenta a los ruidos del exterior.
 
-Un estruendo, como el de un peñasco cayendo, resonó de pronto. Sin perder tiempo, su madre abrió la puerta, dejando entrar brevemente el viento helado al hogar... y también a alguien más.
+Un estruendo, como el de un peñasco cayendo, retumbó de pronto. Sin perder tiempo, la madre abrió la puerta, dejando entrar brevemente el viento helado al hogar... y también a alguien más.
 
 El nido se llenó de chillidos y aleteos de emoción. Todos reconocieron al recién llegado y lo que traía consigo.
 
-El padre de Drygut, un imponente pavo-halcón de afiladas cejas, aún cubierto de escarcha y con perlas de hielo colgando de sus plumas, sin decir una palabra extendió una de sus grandes garras y dejó caer en medio del nido un gran bulto negro y lustroso en forma de pera.
+El padre de Drygut, un imponente pavo-halcón de afiladas cejas, aún cubierto de escarcha y con perlas de hielo colgando de sus plumas, sin decir palabra extendió una de sus grandes garras y dejó caer en medio del nido un bulto negro y lustroso en forma de pera.
 
-Drygut y sus hermanos se abalanzaron sobre el extraño cuerpo, ansiosos y hambrientos. Lo picotearon, despedazaron y devoraron ahí mismo. Aunque casi irreconocible por su extraña forma, se trataba de un gran pez Poro, una critaura marina propia de las aguas circundantes al Gran Norte, rico en grasas y proteínas, sería el único alimento que tendrían los jóvenes pavo-halcones a mitad del invierno. Era una presa  escurridiza que, para la fortuna de los polluelos, el padre de Drygut había logrado atrapar.
+Drygut y sus hermanos se abalanzaron sobre el extraño cuerpo, ansiosos y hambrientos. Lo picotearon, despedazaron y devoraron ahí mismo. Aunque casi irreconocible por su forma, se trataba de un gran pez Poro, una criatura marina propia de las aguas del Gran Norte, rico en grasas y proteínas. Sería el único alimento que tendrían los jóvenes a mitad del invierno. Era una presa escurridiza que, para fortuna de los polluelos, el padre de Drygut había logrado atrapar.
 
-La gran presa no tardó en desaparecer, consumida rápidamente por los jóvenes. Mientras tanto, en un rincón apartado e íntimo, el padre de Drygut aprovechaba la oportunidad para compartir alimento con su pareja, regalándole pequeños bocados de otras presas menores.
+La gran presa no tardó en desaparecer, consumida rápidamente por los jóvenes. Mientras tanto, en un rincón apartado e íntimo, el padre aprovechaba la oportunidad para compartir alimento con su pareja, regalándole pequeños bocados de otras presas menores.
 
-Así, en un silencio creciente, solo interrumpido por el menguante frenesí de la comida, la familia de pavo-halcones terminó de alimentarse sin problemas.
+Así, en un silencio creciente, solo interrumpido por el menguante frenesí de la comida, la familia de pavo-halcón terminó de alimentarse sin problemas.
 
-Pronto, Drygut y los otros jóvenes pavo-halcones comenzaron a retozar nuevamente, satisfechos. Aunque no habían comido lo suficiente como para llenarse por completo, los concentrados nutrientes que habían ingerido les provocaban una sensación de sueño y pesadez difícil de soportar.
+Pronto, Drygut y los otros jóvenes comenzaron a retozar nuevamente, satisfechos. Aunque no habían comido lo suficiente como para llenarse por completo, los nutrientes ingeridos les provocaban una sensación de sueño y pesadez difícil de soportar.
 
 En medio de este ambiente relajado, un chillido repentino captó la atención de todos.
 
 "¡¿Te marchas de nuevo?!"
 
-"Hay una reunión de líderes en la gran cueva. Es importante," respondió el padre de Drygut a su pareja.
+"Hay una reunión de líderes en la gran cueva. Es importante" respondió el padre de Drygut a su pareja.
 
 "Ya no formas parte de ellos. ¿Por qué tienes que ir?"
 
-"Tengo que hacerlo... Ha ocurrido algo grave."
+"Debo hacerlo... Ha ocurrido algo grave."
 
-El semblante de la madre de Drygut se oscureció. Drygut y los otros polluelos giraron la cabeza, curiosos y preocupados por lo que podría estar pasando. El padre de Drygut, notando sus miradas, extendió las alas, indicando que lo que iba a decir era para todos.
+El semblante de la madre de Drygut se oscureció. Drygut y los demás polluelos giraron la cabeza, curiosos y preocupados. El padre, notando sus miradas, extendió las alas, indicando que lo que iba a decir era para todos.
 
-Tras apoyar la cabeza en su pareja para calmarla, finalmente habló.
+Tras apoyar la cabeza en su pareja para calmarla, finalmente habló:
 
 "El hijo del líder del clan ha muerto en combate."
 
 Un silencio sepulcral inundó el lugar.
 
-"¿Draga? ¡¿Cómo?!" exclamó la madre de Drygut, sorprendida. Dentro del nido, los jóvenes chillaron angustiados tambien por la noticia. Todos conocían a Draga, grande y fuerte, y les resultaba difícil imaginar que alguien pudiera enfrentarlo y derrotarlo en el aire. Aún más difícil era pensar que alguien se atreviera a desafiarlo, pues era temido por su temperamento violento y salvaje.
+"¿Draga? ¡¿Cómo?!" exclamó la madre de Drygut, sorprendida. Dentro del nido, los jóvenes chillaron angustiados por la noticia. Todos conocían a Draga: grande, fuerte y temido por su temperamento salvaje. Les resultaba casi imposible imaginar que alguien pudiera enfrentarlo y derrotarlo en el aire.
 
-El padre de Drygut agitó sus alas una vez más, silenciando los chillidos de los polluelos.
+El padre agitó sus alas una vez más, silenciando los chillidos.
 
 "Fue desafiado y perdió. Así sucedió, delante de todos. Es un hecho bajo el cielo, y no puede ser cambiado."
 
 El silencio volvió a envolver el nido, esta vez más pesado y angustiante.
 
-"¿Quién lo desafió?" preguntó Drygut, su voz temblorosa desde una esquina, donde hasta entonces había permanecido en silencio.
+"¿Quién lo desafió?" preguntó Drygut, con voz temblorosa desde una esquina, donde hasta entonces había permanecido callado.
 
-Su padre, como si leyera los temores de su hijo, pronunció el nombre que temía escuchar.
+Su padre, como si leyera sus temores, pronunció el nombre que no quería oír:
 
 "Fue Fathungry."
 
-El nombre cayó sobre ellos como una piedra pesada, oscureciendo los pensamientos de todos en el nido.
+El nombre cayó sobre ellos como una roca, oscureciendo los pensamientos de todos en el nido.
 
-"No vayas," ordenó su pareja, su voz ahora apenas un susurro, quebrada por el miedo.
+"No vayas" ordenó su pareja, su voz apenas un susurro quebrado por el miedo.
 
-"Debo ir," respondió el gran pavo-halcón, su voz firme e inquebrantable. Sin más palabras, apartó a su pareja con su enorme ala y se dispuso a abandonar el lugar.
+"Debo ir" respondió el gran pavo-halcón con firmeza. Sin más palabras, apartó a su pareja con su enorme ala y se dispuso a marcharse.
 
-Pero antes de abrir la entrada, se detuvo un instante y giró la cabeza para mirar por última vez el nido que dejaba atrás.
+Antes de abrir la entrada, se detuvo un instante y giró la cabeza para mirar por última vez el nido que dejaba atrás.
 
-Sus ojos claros se posaron en su hijo mayor, Drygut.
+Sus ojos claros se posaron en su hijo mayor.
 
-"No olvides tu promesa," dijo, su voz grave cargada con un peso que solo la fatalidad podía conferir... como si esas palabras fueran la última voluntad de un sabio y viejo pavo-halcón.
+"No olvides tu promesa" dijo, con una gravedad cargada de fatalidad, como si aquellas palabras fueran la última voluntad de un sabio y viejo pavo-halcón.
 
 Drygut, con el corazón en un puño, intentó hablar, pero las palabras se le atoraron en la garganta. Su padre, sin esperar respuesta, se volvió y, abriendo la entrada del nido, desplegó sus majestuosas alas. Su silueta se alzó en vuelo, desapareciendo en la cegadora luz blanca del exterior.
 
-Ninguno de los presentes volvería a verlo volar nunca más.
+Ninguno de los presentes volvería a verlo volar jamás.
 
 [---]
 
