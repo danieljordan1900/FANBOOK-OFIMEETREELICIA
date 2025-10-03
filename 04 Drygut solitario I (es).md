@@ -26,7 +26,7 @@ Pero más arriba, en lo alto del firmamento, entre las nubes, otra figura se des
 
 A primera vista podía confundirse con un águila gigante, dada su envergadura, pero al observarla más de cerca se hacía evidente que no lo era.
 
-La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se destacaban ojeras azuladas y cejas exageradas, bajo las cuales colgaba, como un diente podrido, un grueso pico amarillo.
+La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se destacaban ojeras azuladas y cejas exageradas, bajo las cuales colgaba, como un diente podrido, un grueso y algo deformado pico amarillo.
 
 Aquel ser sin encanto, que parecía un improbable cruce entre un pavo y un halcón, era exactamente lo que aparentaba: un pavo-halcón.
 
@@ -42,13 +42,13 @@ Con el pecho hinchado de orgullo y el estómago satisfecho con la comida robada,
 
 Los pavo-halcones eran aves oportunistas y rapaces, conocidas por sus largos vuelos migratorios entre el sur y el norte de aquel mundo. Capaces de atravesar océanos, siempre dejaban tras de sí un rastro de desolación similar al de una plaga de langostas. Para los granjeros, eran un desastre natural viviente; para otros, una amenaza monstruosa. Aunque su dieta habitual consistía en vegetales y cereales, no dudaban en cazar presas vivas cuando la ocasión se presentaba.
 
-Drygut, el pavo-halcón, no era la excepción. Insatisfecho con el festín de horas antes, ahora volaba a mediana altura sobre el río, en busca de otra presa desprevenida.
+Drygut no era la excepción. Insatisfecho con el festín de horas antes, volaba ahora a mediana altura sobre el río, en busca de otra presa desprevenida.
 
-Su suerte parecía buena, pues no tardó en encontrarla.
+Su suerte parecía buena: no tardó en encontrarla.
 
-Difusa entre una ligera niebla, en medio de un puente ruinoso, la silueta de una criatura con cuernos se agitaba.
+Difusa entre la niebla, sobre un puente ruinoso, la silueta de una criatura con cuernos se agitaba.
 
-Los pavo-halcones no tenían una vista tan aguda como la de las águilas, y Drygut no era diferente. La bruma le dificultaba distinguir qué clase de ser tenía delante.
+Los pavo-halcones no tenían una vista tan aguda como la de las águilas, y Drygut no era diferente; la bruma le dificultaba distinguir qué clase de ser tenía delante.
 
 Podría tratarse de una venenosa serpiente nariz de aguja, o quizá de una peligrosa cría de hidra. Pero, para Drygut, que fantaseaba con una jugosa rana-toro, el riesgo valía la pena.
 
@@ -56,21 +56,21 @@ Sin pensarlo dos veces, descendió en picada y atrapó entre sus garras a la cri
 
 No obstante, se detuvo en seco al descubrir de qué se trataba.
 
-No era una rana-toro. Era algo más… algo que nunca había visto, pero que le resultaba desagradablemente familiar.
+No era una rana-toro. Era algo inesperado y, a la vez, desagradablemente familiar.
 
-"¡Cof, cof… gracias al cielo, he sido salvada!" exclamó emocionada la Kirin que había aterrizado en la arena." ¿Pero quién me ha salvado…?"
+"¡Cof, cof… gracias al cielo, me han salvado!" exclamó la Kirin, emocionada, al caer sobre la arena. "¿Pero quién me ha salvado…?"
 
-La Kirin se volteó y, al cruzar miradas con el feroz Drygut, su expresión de alivio se transformó en puro terror.
+La Kirin se volteó y, al cruzar miradas con Drygut, su expresión de alivio se transformó en puro terror.
 
 "¡Ahhh, no, por favor, no me comas! ¡No tengo buen sabor! ¡No me he bañado en días! ¡Como pescado! ¡Te lo juro!"
 
 Drygut no respondió; solo la observaba en silencio.
 
-"¡Por favor, no! ¡Nooo! ¡No me comas!" continuó suplicando la Kirin entre lágrimas y movimientos desesperados, que más parecían una actuación exagerada que un verdadero ruego.
+"¡Por favor, no! ¡Nooo! ¡No me comas!" siguió suplicando la Kirin entre lágrimas y manotazos desesperados que parecían más una exageración que un ruego auténtico.
 
 Aun así, Drygut no se movió.
 
-Tras interminables segundos de rezos, la Kirin terminó exhausta. Dejó de gritar y adoptó una postura de resignación.
+Tras interminables segundos de rezos, la Kirin quedó exhausta. Dejó de gritar y adoptó una postura de resignación.
 
 Pero nada ocurrió.
 
@@ -78,15 +78,15 @@ Pero nada ocurrió.
 
 Drygut seguía allí, inmóvil. Pero ya no la miraba: tenía la vista perdida en algún punto lejano.
 
-"¿No vas a comerme? ¿Entonces sí tengo buen sabor? Bueno… no es necesario que lo compruebes. Solo quiero aclarar que soy muy higiénica, no sucia como dije antes… jejeje. Uhm, sobre eso… si no quieres comerme entonces… ¡¿Realmente querías salvarme?!" exclamó de pronto la Kirin, sorprendida por su propia conclusión. Su rostro se iluminó con una sonrisa radiante." ¡Wow, no sabía que los de tu tipo hicieran ese tipo de cosas! No es que los esté discriminando por ser malos, pero… ¡esto es increíble! Mis amigos de la tribu no me lo van a creer, nadie me lo va a creer, yo misma no lo creo, sin ofender, claro…"
+"¿No vas a comerme? Entonces... ¿no tengo buen sabor? Bueno, no es necesario que lo compruebes. Solo quiero aclarar que soy muy higiénica, no sucia como dije antes… jejeje. Uhm, sobre eso… si no quieres comerme entonces… ¡¿Realmente querías salvarme?!" exclamó de pronto la Kirin, sorprendida por su propia conclusión. Su rostro se iluminó con una sonrisa radiante. "¡Wow, wow! ¿¡Es en serio!? ¡No sabía que los de tu tipo hicieran ese tipo de cosas! No es que los esté discriminando por ser malos, pero… ¡esto es increíble! Mis amigos de la tribu no me lo van a creer, nadie me lo va a creer, yo misma no lo creo, sin ofender, claro…"
 
-La Kirin siguió parloteando sin parar, mientras Drygut, indiferente, comenzaba a alejarse de ella, dejando de escucharla por completo.
+La Kirin siguió parloteando sin parar, mientras Drygut, indiferente, comenzaba a alejarse, dejándola de escuchar por completo.
 
-De repente, el pavo-halcón desplegó sus alas y, con un poderoso aleteo, se elevó en el aire.
+De repente, desplegó sus alas y, con un poderoso aleteo, se elevó en el aire.
 
-"¡Espera, amigo, no te vayas! ¡Ouuuuu! ¡Estoy perdida! ¡Amigooo!" intentó alcanzarlo la Kirin entre tropezones.
+"¡Espera, amigo, no te vayas! ¡Oooohhh! ¡Estoy perdida! ¡Amigooo!" gritó la Kirin, persiguiéndolo entre tropezones.
 
-Pero Drygut, dejando atrás a la parlanchina criatura, desapareció entre las sombras de la niebla del valle.
+Pero Drygut, dejando atrás a la parlanchina criatura, se desvaneció en la niebla del valle.
 
 [---]
 
