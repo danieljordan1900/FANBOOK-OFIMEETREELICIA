@@ -28,7 +28,7 @@ El nido se llenó de chillidos y aleteos de emoción. Todos reconocieron al reci
 
 El padre de Drygut, un imponente pavo-halcón de afiladas cejas, aún cubierto de escarcha y con perlas de hielo colgando de sus plumas, sin decir una palabra extendió una de sus grandes garras y dejó caer en medio del nido un gran bulto negro y lustroso en forma de pera.
 
-Drygut y sus hermanos se abalanzaron sobre el extraño cuerpo, ansiosos y hambrientos. Lo picotearon, despedazaron y devoraron ahí mismo. Aunque casi irreconocible por su extraña forma, se trataba de un gran pez marino propio del Ártico, rico en grasas y proteínas, el único alimento que tendrían los jóvenes pavo-halcones a mitad del invierno. Una presa difícil e inusual que, para la fortuna de los polluelos, el padre de Drygut había logrado atrapar.
+Drygut y sus hermanos se abalanzaron sobre el extraño cuerpo, ansiosos y hambrientos. Lo picotearon, despedazaron y devoraron ahí mismo. Aunque casi irreconocible por su extraña forma, se trataba de un gran pez Poro, una critaura marina propia de las aguas circundantes al Gran Norte, rico en grasas y proteínas, sería el único alimento que tendrían los jóvenes pavo-halcones a mitad del invierno. Era una presa  escurridiza que, para la fortuna de los polluelos, el padre de Drygut había logrado atrapar.
 
 La gran presa no tardó en desaparecer, consumida rápidamente por los jóvenes. Mientras tanto, en un rincón apartado e íntimo, el padre de Drygut aprovechaba la oportunidad para compartir alimento con su pareja, regalándole pequeños bocados de otras presas menores.
 
@@ -50,7 +50,7 @@ El semblante de la madre de Drygut se oscureció. Drygut y los otros polluelos g
 
 Tras apoyar la cabeza en su pareja para calmarla, finalmente habló.
 
-"El hijo del líder del clan ha muerto."
+"El hijo del líder del clan ha muerto en combate."
 
 Un silencio sepulcral inundó el lugar.
 
@@ -80,7 +80,7 @@ Sus ojos claros se posaron en su hijo mayor, Drygut.
 
 "No olvides tu promesa," dijo, su voz grave cargada con un peso que solo la fatalidad podía conferir... como si esas palabras fueran la última voluntad de un sabio y viejo pavo-halcón.
 
-Drygut, con el corazón en un puño, intentó hablar, pero las palabras se le atoraron en la garganta. Su padre, sin esperar respuesta, se volvió y, abriendo la entrada del nido, desplegó sus majestuosas alas. Su silueta se alzó en vuelo, desapareciendo en la cegadora luz del exterior.
+Drygut, con el corazón en un puño, intentó hablar, pero las palabras se le atoraron en la garganta. Su padre, sin esperar respuesta, se volvió y, abriendo la entrada del nido, desplegó sus majestuosas alas. Su silueta se alzó en vuelo, desapareciendo en la cegadora luz blanca del exterior.
 
 Ninguno de los presentes volvería a verlo volar nunca más.
 
@@ -150,7 +150,7 @@ Cerrando los ojos y dejándose guiar por el viento, Drygut comenzó a imaginar a
 
 Así le había hablado su padre, pero Drygut nunca lo entendió, y ahora tampoco lo comprendía. ¿Un fuego que quemaba acero y también sanaba? En toda su vida de viajes migratorios, ningún pavo-halcón había visto algo semejante. Se creía que ese fuego pertenecía únicamente a los dragones ancestrales, capaces de transformar lo existente con su aliento.
 
-Drygut nunca conoció a alguno de esos dragones. Tampoco sabía dónde encontrarlos. Los dragones que había visto eran demasiado jóvenes para ser llamados verdaderos dragones ancestrales.
+Drygut nunca conoció a alguno de esos miticos dragones. Tampoco sabía dónde encontrarlos. Los dragones que ya conocía eran demasiado jóvenes para ser llamados verdaderos dragones ancestrales. Tal vez el ex gran señor de los Dragones, Torch, podria catalogarse en esa posición. Pero ¿Quien podria confirmarselo?
 
 Frustrado, Drygut abrió los ojos y dejó de pensar. Sabía demasiado poco. Pensar tanto le causaba dolor de cabeza, pero era lo mejor y lo único que podía hacer en ese momento.
 
@@ -182,7 +182,7 @@ Girando en círculos alrededor de la gran columna de humo, Drygut buscaba algo m
 
 Los aldeanos lo habían visto a él, y probablemente pensaban que era el responsable del incendio. Al menos, eso interpretó Drygut de los gritos difusos que llegaban desde abajo.
 
-"Clo, clo, clo, clo," volvió a reír burlón. No sabía qué pensar de esas criaturas tan pequeñas y torpes, aparte de que eran increíblemente estúpidas. Los pavo-halcones no conocían el fuego, no lo usaban, aunque eran resistentes tanto a las llamas como al agua. Aun así, debían tener cuidado, y por eso mismo Drygut se mantenía distante del humo y las lenguas de fuego.
+"Clo, clo, clo, clo," volvió a reír burlón. No sabía qué pensar de esas criaturas tan pequeñas y torpes, aparte de que eran increíblemente estúpidas. Los pavo-halcones no conocían el fuego, es decir, no lo usaban, y eran resistentes tanto a las llamas como al agua. Aun así, debían tener cuidado (no eran invulnerables a la asfixia), y por eso mismo Drygut se mantenía distante del humo y las lenguas de fuego.
 
 Entonces, una oscura idea iluminó su semblante.
 
@@ -200,11 +200,11 @@ Sería una imagen que, sin duda, ninguno de los aldeanos olvidaría en sus vidas
 
 Pero ya dentro del incendio, Drygut descubrió el grave error que había cometido.
 
-Volando al ras del suelo y envuelto por el espeso humo, la silueta de una torre emergió repentinamente ante sus ojos. No tuvo tiempo de reaccionar. Segundos después, todo se volvió oscuridad.
+Volando al ras del suelo y envuelto por el espeso humo, la silueta de una torre emergió repentinamente ante sus ojos. No tuvo tiempo de evadirla. Segundos después, todo se volvió oscuridad.
 
 [---]
 
-Cuando Drygut comenzó a recuperar la conciencia, el mundo parecía fluir en una profunda oscuridad. Poco a poco, las formas se fueron definiendo, y el sonido del agua corriendo a su alrededor llegó a sus oídos.
+Cuando Drygut comenzó a recuperar la conciencia, el mundo parecía fluir en una profunda negrura. Poco a poco, las formas se fueron definiendo, y el sonido del agua corriendo a su alrededor llegó a sus oídos.
 
 Y también, una voz.
 
