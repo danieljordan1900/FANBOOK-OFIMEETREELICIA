@@ -94,19 +94,19 @@ Horas después, en lo alto de una colina rocosa, sentado sobre un nido de ramas 
 
 No se hallaba bien, y no era por el frío intenso que lo envolvía.
 
-"Pur, pur, pur…" canturreó con tristeza.
+“Pur, pur, pur…” canturreó con tristeza.
 
 El encuentro con aquella extraña criatura semejante a un poni le había arrebatado el poco ánimo que había reunido en la mañana.
 
 Comer en exceso solía bastar para enterrar sus problemas, pero esta vez no surtía efecto.
 
-"Pur, pur, pur…" volvió a gimotear, abatido.
+“Pur, pur, pur…” volvió a gimotear, abatido.
 
-El clima habia cambiado radicalmente desde la mañana. Oscuras nubes cubrieron el cielo, y la lluvia pronto comenzó a caer. La cabeza colorada del pavo-halcón se ocultó bajo el plumaje.
+El clima había cambiado radicalmente desde la mañana. Oscuras nubes cubrieron el cielo, y la lluvia pronto comenzó a caer. La cabeza colorada del pavo-halcón se ocultó bajo el plumaje.
 
 Se sentía miserable.
 
-Con solo verlo, cualquiera con suficiente conocimiento de los pavo-halcones lo habría adivinado el motivo: Drygut estaba solo.
+Con solo verlo, cualquiera con suficiente conocimiento de los pavo-halcones habría adivinado la causa: Drygut estaba solo.
 
 Aquellas aves vivían en clanes numerosos y sociables. Había jerarquías y ocasionales disputas violentas, pero en general reinaba la camaradería. Un pavo-halcón solitario era una rareza.
 
@@ -114,7 +114,7 @@ Y Drygut sabía con amargura por qué se encontraba en esa situación.
 
 Semanas atrás, se había separado de su clan por una negligencia propia. Desorientado, terminó envuelto en un peligro del que, por diversos factores, logró escapar gracias a criaturas mucho más pequeñas que él. Aunque consiguió regresar a salvo a su clan tras recuperarse, lo recibieron con hostilidad. Se había corrido el rumor de que había aceptado ayuda de esas criaturas y, peor aún, que se había hecho amigo de ellas.
 
-Para los pavo-halcones, aquella conducta hacia especies consideradas inferiores era inadmisible. Orgullosos y altivos, jamás toleraban la idea de necesitar la ayuda de nadie más a parte de los de su propia raza. Drygut trató de convencerlos de que todo era un malentendido, un montón de chismes sin fundamento, pero el líder del clan, el temible Fathungry, estaba ausente. El juicio quedó en manos de otros que no lo apreciaban, y fue implacable.
+Para los pavo-halcones, aquella conducta hacia especies consideradas inferiores era inadmisible. Orgullosos y altivos, jamás toleraban la idea de necesitar la ayuda de nadie aparte de los de su propia raza. Drygut trató de convencerlos de que todo era un malentendido, un montón de chismes sin fundamento, pero el líder del clan, el temible Fathungry, estaba ausente. El juicio quedó en manos de otros que no lo apreciaban, y fue implacable.
 
 Su sentencia fue el exilio.
 
@@ -124,11 +124,11 @@ Con un profundo dolor, abandonó a los suyos, cargando con la inmerecida amenaza
 
 Pero Drygut no creía en esa última promesa. Como el líder no había dictado la sentencia, estaba convencido de que aún podía rebatirla. Sin embargo, ¿cómo demostrar su inocencia? ¿Cómo recuperar su orgullo ante los suyos?
 
-No importaba cuánto lo pensara: no podía encontrar respuesta a esas preguntas.
+No importaba cuánto lo pensara: no hallaba respuesta.
 
 La lluvia arreció sobre su cuerpo, ocultando las pequeñas lágrimas que rodaban por sus ojos. El pequeño corazón de aquella gran ave estaba herido por la soledad que lo envolvía, y el sentimiento de abandono lo devoraba desde dentro.
 
-"Pur, pur, pur..."
+“Pur, pur, pur...”
 
 El lamento de Drygut se perdió entre la tormenta, mientras el sueño y el dolor lo arrastraban hacia pensamientos sombríos y recuerdos lejanos del pasado.
 
