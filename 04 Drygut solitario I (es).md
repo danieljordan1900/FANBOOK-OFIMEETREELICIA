@@ -2,9 +2,9 @@
 
 Entre las cumbres de unas altas montañas, la luz del amanecer se filtraba lentamente a través de las nubes, iluminando el extenso valle verde que descendía por sus laderas.
 
-Era el inicio de un nuevo día en aquel valle de densos bosques y prados abiertos, atravesado por un caudaloso río que rompía en múltiples y majestuosas cataratas.
+Era el inicio de un nuevo día en aquel valle de densos bosques y prados abiertos, atravesado por un caudaloso río que se precipitaba en múltiples y majestuosas cataratas.
 
-En el centro del curso fluvial, sobre la mayor de aquellas cascadas, desafiante, se alzaba una pequeña isla, hogar de un pueblo pintoresco y densamente poblado.
+En el centro del curso fluvial, sobre la mayor de aquellas caídas, se alzaba, desafiante, una pequeña isla: hogar de un pueblo pintoresco y densamente poblado.
 
 Más moderno que rural, aquel asentamiento aislado del mundo era una comunidad pacífica y agraria que había vivido siempre en armonía con su entorno.
 
@@ -24,15 +24,15 @@ Incluso las aves locales revoloteaban inquietas sobre los tejados, como si compa
 
 Pero más arriba, en lo alto del firmamento, entre las nubes, otra figura se deslizaba silenciosamente, observando todo desde las alturas.
 
-A primera vista podía confundirse con un águila gigante, dada su envergadura, pero al observarla más de cerca, se hacia evidente que no lo era.
+A primera vista podía confundirse con un águila gigante, dada su envergadura, pero al observarla más de cerca se hacía evidente que no lo era.
 
-La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se destacaban ojeras azuladas y cejas exageradamente bajo las cuales colgaba, como un diente podrido, un grueso pico amarillo.
+La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se destacaban ojeras azuladas y cejas exageradas, bajo las cuales colgaba, como un diente podrido, un grueso pico amarillo.
 
 Aquel ser sin encanto, que parecía un improbable cruce entre un pavo y un halcón, era exactamente lo que aparentaba: un pavo-halcón.
 
 Más precisamente, era Drygut, el pavo-halcón, que ahora planeaba despreocupado sobre el pueblo, deleitándose con el alboroto de sus habitantes.
 
-Desde lo alto soltó un cloqueo burlón, cargado de malicia, que resonó en el aire. El desorden en el pueblo era música para sus oídos. Nadie conocía la verdad mejor que él: Drygut conocía perfectamente al responsable del ataque al pueblo en la oscuridad de la madrugada.
+Desde lo alto soltó un cloqueo burlón, cargado de malicia, que resonó en el aire. El desorden en el pueblo era música para sus oídos. Nadie conocía la verdad mejor que él: Drygut sabía perfectamente quién había atacado al pueblo en la oscuridad de la madrugada.
 
 Drygut lo había hecho. Drygut era el culpable.
 
