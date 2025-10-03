@@ -58,19 +58,19 @@ No obstante, se detuvo en seco al descubrir de qué se trataba.
 
 No era una rana-toro. Era algo inesperado y, a la vez, desagradablemente familiar.
 
-"¡Cof, cof… gracias al cielo, me han salvado!" exclamó la Kirin, emocionada, al caer sobre la arena. "¿Pero quién me ha salvado…?"
+"¡Puf, paf! ¡Gracias al cielo, estoy rescatada! ¡No-ahogada! ¡Digo, salvada!"  exclamó la Kirin al caer sobre la arena, escupiendo agua. "¡Un momento! ¿Quién ha sido mi ángel salvador? ¿Mi héroe con plumas?"
 
 La Kirin se volteó y, al cruzar miradas con Drygut, su expresión de alivio se transformó en puro terror.
 
-"¡Ahhh, no, por favor, no me comas! ¡No tengo buen sabor! ¡No me he bañado en días! ¡Como pescado! ¡Te lo juro!"
+"¡Ahhh, no, espera, alto! ¡No me comas! ¡Soy fibrosa! ¡Muy fibrosa! ¡No me he bañado en días! ¡Como pescado y cactus! ¡Bueno, no literalmente cactus, pero podría! ¡Te lo juro!"
 
 Drygut no respondió; solo la observaba en silencio.
 
-"¡Por favor, no! ¡Nooo! ¡No me comas!" siguió suplicando la Kirin entre lágrimas y manotazos desesperados que parecían más una exageración que un ruego auténtico.
+"¡Por favor, no! ¡Nooo!" siguió suplicando la Kirin entre lágrimas y manotazos desesperados que parecían más una representación teatral que un ruego auténtico.
 
 Aun así, Drygut no se movió.
 
-Tras interminables segundos de rezos, la Kirin quedó exhausta. Dejó de gritar y adoptó una postura de resignación.
+Tras interminables segundos de actuación dramática combinada con rezos, la Kirin quedó exhausta. Dejó de gritar y adoptó una postura de resignación.
 
 Pero nada ocurrió.
 
@@ -78,13 +78,13 @@ Pero nada ocurrió.
 
 Drygut seguía allí, inmóvil. Pero ya no la miraba: tenía la vista perdida en algún punto lejano.
 
-"¿No vas a comerme? Entonces... ¿no tengo buen sabor? Bueno, no es necesario que lo compruebes. Solo quiero aclarar que soy muy higiénica, no sucia como dije antes… jejeje. Uhm, sobre eso… si no quieres comerme entonces… ¡¿Realmente querías salvarme?!" exclamó de pronto la Kirin, sorprendida por su propia conclusión. Su rostro se iluminó con una sonrisa radiante. "¡Wow, wow! ¿¡Es en serio!? ¡No sabía que los de tu tipo hicieran ese tipo de cosas! No es que los esté discriminando por ser malos, pero… ¡esto es increíble! Mis amigos de la tribu no me lo van a creer, nadie me lo va a creer, yo misma no lo creo, sin ofender, claro…"
+"¿Eh? ¿Eeeeh?" La Kirin parpadeó confundida. "¿No hay mordidas? Quiero decir, ¿picotasos? Es porque no tengo buen sabor...  ¡no es necesario que lo compruebes! Solo quiero aclarar que soy muy higiénica, no sucia como dije antes… jejeje. Espera, espera… ¡Un momento!" Sus ojos se abrieron como platos. "¡Esto significa que...! ¡¿Realmente querías salvarme?!" exclamó de pronto la Kirin, sorprendida por su propia conclusión. Su rostro se iluminó con una sonrisa radiante. "¡Wow, wow! ¿¡Es en serio!? ¡No sabía que los de tu tipo hicieran ese tipo de cosas! No es que los esté discriminando por ser malos, pero… ¡esto es increíble! Mis amigos de la tribu no me lo van a creer, nadie me lo va a creer, yo misma no lo creo, sin ofender, claro…"
 
 La Kirin siguió parloteando sin parar, mientras Drygut, indiferente, comenzaba a alejarse, dejándola de escuchar por completo.
 
 De repente, desplegó sus alas y, con un poderoso aleteo, se elevó en el aire.
 
-"¡Espera, amigo, no te vayas! ¡Oooohhh! ¡Estoy perdida! ¡Amigooo!" gritó la Kirin, persiguiéndolo entre tropezones.
+"¡Espera, amigo, no te vayas! ¡Sé que hablo mucho—mis amigos siempre me lo dicen—pero esta vez necesito ayuda! ¡Oooohhh! ¡Estoy perdida! ¡No conozco esta zona! ¡Amigooo!" gritó la Kirin, persiguiéndolo entre tropezones, agitando las patas en el aire como si eso pudiera detenerlo.
 
 Pero Drygut, dejando atrás a la parlanchina criatura, se desvaneció en la niebla del valle.
 
@@ -136,7 +136,7 @@ El lamento de Drygut se perdió entre la tormenta, mientras el sueño y el dolor
 
 Mucho tiempo atrás. En un recuerdo lejano. En un cielo olvidado…
 
-Él agitaba sus alas con todas sus fuerzas, apenas logrando mantenerse en vuelo.
+Él, un joven Drygut, agitaba sus alas con todas sus fuerzas, apenas logrando mantenerse en vuelo.
 
 Delante de él, un gran pavo-halcón volaba sin esfuerzo sobre un firmamento azul y despejado.
 
@@ -186,7 +186,7 @@ Drygut quiso contestar, pero no pudo. Toda su atención quedó atrapada en el fa
 
 Allí, en uno de los extremos de los cielos, existía otro cielo oculto sobre el recóndito gran norte. Encima del falso sol, una vez por cada equinoccio, se abría una puerta hacia ese lugar olvidado.
 
-Drygut estaba de pie sobre un suelo de infinita blancura, bajo un cielo rojo. A sus lados, en filas solemnes, todos los pavo-halcones adultos permanecían erguidos como devotos feligreses, mirando absortos en una misma dirección. Algunos cloqueaban en rezos, otros extendían las alas al firmamento; todos atentos, todos vigilantes de lo que se aproximaba...
+Drygut estaba de pie sobre un suelo de infinita blancura, bajo un cielo rojo. A sus lados, en filas solemnes, todos los pavo-halcones adultos permanecían erguidos como devotos feligreses, mirando absortos en una misma dirección. Algunos cloqueaban en rezos, otros extendían las alas al firmamento; todos atentos, todos vigilantes de lo que se aproximaba.
 
 Su padre también miraba en esa dirección.
 
@@ -196,9 +196,9 @@ Intrigado, el joven Drygut levantó la vista e intentó descubrir qué era aquel
 
 Drygut comenzó a temblar ante la nítida presencia que descendía lentamente hacia ellos.
 
-Un inmenso bloque negro se elevaba sobre todo, como un cuerpo celeste cuadrado en un cielo rojo. Era un trono de proporciones titánicas, tallado de una sola piedra arrancada de las entrañas de la tierra. Sobrecogedor por su tamaño y forma, lo más impactante era, sin embargo, la presencia que lo ocupaba.
+Un inmenso bloque negro se erguía sobre todo, como un cuerpo celeste cuadrado en un cielo rojo. Era un trono de proporciones titánicas, tallado de una sola piedra arrancada de las entrañas de la tierra. Sobrecogedor por su tamaño y forma, lo más impactante era, sin embargo, la presencia que lo ocupaba.
 
-Una criatura aviar jamás vista: completamente blanca, con cuatro extremidades, cuatro alas, dos cabezas, y sobre cada una una corona de fuego. En cada garra sostenía un arma distinta, mágica y letal. Poderosa a los ojos de Drygut, pero también inquietante y siniestra...
+Una criatura aviar jamás vista: completamente blanca, con cuatro extremidades, cuatro alas, dos cabezas, y sobre cada una una corona de fuego. En cada garra sostenía un arma distinta, mágica y letal. Poderosa a los ojos de Drygut, pero también inquietante y siniestra.
 
 Un dios oscuro. Nadie que lo viera podría pensar otra cosa.
 
@@ -206,7 +206,7 @@ Un dios oscuro. Nadie que lo viera podría pensar otra cosa.
 
 "¿No?" respondió el joven, con voz temblorosa.
 
-"El dios de los cielos voló de este mundo hace mucho tiempo. Lo que ves es solo un cascarón...
+"El dios de los cielos voló de este mundo hace mucho tiempo. Lo que ves es solo un cascarón..."
 
 "¿Cascarón?" repitió Drygut, confundido. Volvió a mirar a la terrible figura en el trono y, al observarla con más atención, lo comprendió.
 
@@ -216,7 +216,7 @@ Los ojos del ser eran negros, agrietados, huecos. Varias partes de su cuerpo est
 
 Cadenas doradas aprisionaban sus extremidades, manteniéndolo atado al trono, incapaz de moverse... si llegaba a despertar.
 
-"El dios de los cielos gobernó el firmamento en el pasado. Poderoso como ninguno, dominaba el sol y la luna. Incluso hizo la guerra al tercer cielo. Pero fue derrotado. Las águilas y los dragones antiguos lo encadenaron y lo desterraron. De su imperio en las nubes, solo quedó su trono y su cuerpo vacío.
+"El dios de los cielos gobernó el firmamento en el pasado. Poderoso como ninguno, dominaba el sol y la luna. Incluso hizo la guerra al tercer cielo. Pero fue derrotado. Las águilas y los dragones antiguos lo encadenaron y lo desterraron. De su imperio en las nubes, solo quedó su trono y su cuerpo vacío."
 
 Drygut no entendía nada de lo que decía su padre... ¿Dioses? ¿Dragones antiguos? ¿Águilas? Confundido, pero aún más curioso, se apartó de su lado e intentó elevarse para ver mejor al titán muerto.
 
@@ -230,9 +230,9 @@ Así transcurrió el tiempo, envuelto en el sagrado silencio que cubría aquel e
 
 "¿A dónde va, padre?" preguntó Drygut, observando cómo desaparecía aquel dios olvidado en el horizonte.
 
-"Va hacia el polo sur. Allí permanecerá hasta el próximo ciclo. Luego volverá aquí. Cuando seas mayor, deberás traer también a tu hijo y mostrarle esto," respondió su padre, volviendo la mirada hacia Drygut.
+"Va hacia el polo sur. Allí permanecerá hasta el próximo ciclo. Luego volverá aquí. Cuando seas mayor, deberás traer también a tu hijo y mostrarle esto" respondió su padre, volviendo la mirada hacia Drygut.
 
-"Ah, claro... por supuesto, padre," respondió el joven, fingiendo seguridad. A Drygut le incomodaba hablar de esos temas con su padre... Aún era joven, pero pronto tendría que conseguir pareja. No sabía cómo empezar, no era bueno socializando con los otros pavo-halcones y estaba convencido de que ni siquiera sería capaz de charlar con las hembras de su especie.
+"Ah, claro... por supuesto, padre" respondió el joven, fingiendo seguridad. A Drygut le incomodaba hablar de esos temas con su padre... Aún era joven, pero pronto tendría que conseguir pareja. No sabía cómo empezar, no era bueno socializando con los otros pavo-halcones y estaba convencido de que ni siquiera sería capaz de charlar con las hembras de su especie.
 
 En medio de un mar de dudas, Drygut dejó que sus pensamientos se perdieran en el horizonte.
 
@@ -246,7 +246,7 @@ El momento solemne de los pavo-halcones había pasado. Siendo ignorado, Drygut b
 
 Las plumas de distintos tamaños continuaban cayendo, suaves como una lluvia de verano.
 
-"Debe ser mágico..." pensó el joven, dando saltos para alcanzar las más grandes que descendían del cielo. El pavo-halcón no sabía nada de magia, pero empezaba a intuirlo. Sin consultar a nadie, comenzó a tomar las plumas más brillantes con su pico y a guardarlas entre sus alas.
+"Debe ser mágico..." pensó el joven, dando saltos para alcanzar las más grandes que descendían del cielo. No sabía nada de magia, pero empezaba a intuirlo. Sin consultar a nadie, comenzó a tomar las plumas más brillantes con su pico y a guardarlas entre sus alas.
 
 "Jajaja, tonto, tonto, eso no sirve," escuchó de pronto a sus espaldas.
 
