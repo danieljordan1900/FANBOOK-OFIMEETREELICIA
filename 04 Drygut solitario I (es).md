@@ -150,7 +150,7 @@ El joven Drygut levantó la mirada y vio un objeto semejante al sol flotando en 
 
 "Ho..." respondió Drygut, sin comprender del todo las palabras de su padre.
 
-Padre e hijo continuaron su vuelo. No estaban solos: a su alrededor, más pavo-halcones avanzaban en formación. Todos los clanes se habían reunido para una migración extraordinaria que solo ocurría una vez cada ciento setenta y cinco lunas.
+Padre e hijo continuaron su vuelo. No estaban solos: a su alrededor, más pavo-halcones avanzaban en formación. Todos los clanes se habían reunido para una migración extraordinaria hacia el Gran Norte que solo ocurría una vez cada ciento setenta y cinco lunas.
 
 Un viaje inaudito hacia un destino inaudito.
 
@@ -314,52 +314,46 @@ Un silencio se levantó entre ambos.
 
 Su padre lo llamó, y de inmediato se reunió con él.
 
-El dios de los cielos ya había desaparecido bajo el suelo. En el lugar donde había caído, el suelo blanco comenzaba a desintegrarse, revelando el mundo verdadero debajo.
+El dios de los cielos ya había desaparecido bajo la superficie. Allí donde había caído, el suelo blanco comenzaba a resquebrajarse, dejando entrever el mundo verdadero oculto debajo.
 
-Aún maravillado por aquellas visiones, Drygut observó a su padre mirar a la distancia. Se veía pensativo.
+Aún maravillado por aquella visión, Drygut observó a su padre, que miraba hacia la distancia con gesto pensativo.
 
-"¿Qué te pareció, hijo?" le preguntó de pronto.
+"¿Qué te pareció, hijo?" preguntó de pronto.
 
 "Padre, este viaje ha sido asombroso, pero... ¿por qué debemos hacerlo?"
 
-"Es la tradición... así ha sido y así será," respondió su padre, solemne.
+"Es la tradición. Así ha sido y así será," respondió él con solemnidad.
 
 "Hooo... ¿Comeremos al volver?"
 
-"Sí... comeremos mucho," respondió alegre su padre.
+"Sí. Comeremos mucho," contestó su padre con una sonrisa más ligera.
 
-Su padre era alguien muy sabio entre los pavo-halcones. Muchos recurrían a él. A Drygut le dolía no ser tan sabio como su padre.
+Drygut lo contempló en silencio. Su padre era considerado uno de los más sabios entre los pavo-halcones; muchos buscaban su consejo. Y sin embargo, a Drygut le dolía sentirse tan lejos de esa sabiduría. Era un dolor extraño, que siempre se disipaba al compartir la cena con él.
 
-Era muy doloroso, pero siempre lo olvidaba después de cenar con él.
+Uno a uno, los pavo-halcones comenzaron a descender hacia el mundo real, abandonando aquel misterioso cielo. Padre e hijo también partieron, entregándose a los fríos vientos del Gran Norte. Esta vez, Drygut se sintió fuerte: pudo soportarlo sin esfuerzo. El descenso resultaba sencillo, casi natural.
 
-Así, uno a uno, los pavo-halcones comenzaron a descender hacia el mundo real, dejando atrás aquel misterioso cielo.
+Durante el trayecto, no apartó los ojos de su padre. Y entonces lo notó.
 
-Padre e hijo también partieron, cayendo hacia los brazos de los fríos vientos del Ártico. Sin embargo, esta vez Drygut pudo manejarlo sin problemas. El vuelo de descenso resultaba sencillo.
-
-Durante el trayecto, Drygut no perdió de vista a su padre en ningún momento.
-
-Continuaron descendiendo hasta que... lo notó.
-
-En una de las alas de su padre, pegada a pesar del viento, se hallaba una inconfundible 'pluma divina'.
+En una de sus alas, aferrada pese al viento, había una inconfundible pluma divina.
 
 No había desaparecido.
 
-"¡Padre!" exclamó de pronto Drygut.
+"¡Padre!" exclamó de pronto.
 
 "¿Qué ocurre?"
 
 "¡Una pluma divina!"
 
-"Ah, eso," respondió su padre, notando la pluma en su ala derecha. "Es un signo de buena suerte. Desaparecerá en un momento. ¿No tomaste algunas?"
+"Ah, eso," respondió él al notar la pluma en su ala derecha. "Es un signo de buena suerte. Desaparecerá en un momento. ¿No tomaste algunas?"
 
-"Sí, pero... ya no están." Drygut miró bajo su pecho. Aunque había hecho un esfuerzo en protegerlas del viento, todas las plumas que había recogido habían desaparecido.
+"Sí, pero... ya no están." Drygut bajó la mirada a su pecho. Había intentado protegerlas del viento, pero todas habían desaparecido.
 
-"Siempre pasa... pero no todas lo hacen."
+"Siempre pasa... aunque no con todas."
 
-"¿No todas lo hacen?" replicó Drygut, confundido.
+"¿No con todas?" repitió Drygut, desconcertado.
 
-"No... es complicado. Te lo explicaré en la cena," respondió su padre de buen humor.
+"No. Es complicado. Te lo explicaré en la cena," dijo su padre con buen humor.
 
-"¡Sí, padre!" exclamó emocionado Drygut, ilusionado por el posible secreto que podría aprender.
+"¡Sí, padre!" respondió Drygut, entusiasmado, ilusionado con el secreto que pronto compartirían.
 
-Así, bajo el brillo dorado de un sol falso y uno verdadero que se alzaba en el horizonte, padre e hijo desaparecieron entre las nubes brillantes de los cielos del gran norte.
+Así, bajo el brillo dorado de un sol falso y de otro verdadero que ascendía en el horizonte, padre e hijo se desvanecieron entre las nubes resplandecientes del gran norte.
