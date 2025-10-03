@@ -226,7 +226,7 @@ Drygut, sin comprender del todo lo que ocurría, sintió un dolor insoportable q
 
 Desfallecido, el cuello de Drygut se dobló y empezó a cerrar los ojos nuevamente, perdiendo el conocimiento.
 
-"...ok, me equivoqué, no se ve mal... se ve horrible. Pero sigo confiada en que puedo ayudarte, amigo. Te lo dice una Kirin que ha tomado clases avanzadas de medicina en su tribu y está lista para afrontar cualquier desafío que se le presente en su viaje por el mundo.
+"...ok, me equivoqué, no se ve mal... se ve horrible. Pero sigo confiada en que puedo ayudarte, amigo. ¡Te lo dice una Kirin que ha tomado clases avanzadas de medicina en su tribu y está lista para afrontar cualquier desafío que se le presente en su viaje por el mundo!
 
 Bien, primero esto..." —la Kirin presionó uno de los hematomas alrededor de la herida, haciendo que Drygut se estremeciera—. "¡Uy, perdón!
 
