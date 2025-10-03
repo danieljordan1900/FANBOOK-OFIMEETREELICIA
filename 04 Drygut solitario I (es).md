@@ -94,13 +94,13 @@ Horas después, en lo alto de una colina rocosa, sentado sobre un nido de ramas 
 
 No se hallaba bien, y no era por el frío intenso que lo envolvía.
 
-“Pur, pur, pur…” canturreó con tristeza.
+"Pur, pur, pur…" canturreó con tristeza.
 
 El encuentro con aquella extraña criatura semejante a un poni le había arrebatado el poco ánimo que había reunido en la mañana.
 
 Comer en exceso solía bastar para enterrar sus problemas, pero esta vez no surtía efecto.
 
-“Pur, pur, pur…” volvió a gimotear, abatido.
+"Pur, pur, pur…" volvió a gimotear, abatido.
 
 El clima había cambiado radicalmente desde la mañana. Oscuras nubes cubrieron el cielo, y la lluvia pronto comenzó a caer. La cabeza colorada del pavo-halcón se ocultó bajo el plumaje.
 
@@ -128,13 +128,13 @@ No importaba cuánto lo pensara: no hallaba respuesta.
 
 La lluvia arreció sobre su cuerpo, ocultando las pequeñas lágrimas que rodaban por sus ojos. El pequeño corazón de aquella gran ave estaba herido por la soledad que lo envolvía, y el sentimiento de abandono lo devoraba desde dentro.
 
-“Pur, pur, pur...”
+"Pur, pur, pur..."
 
 El lamento de Drygut se perdió entre la tormenta, mientras el sueño y el dolor lo arrastraban hacia pensamientos sombríos y recuerdos lejanos del pasado.
 
 [---]
 
-Mucho tiempo atrás, en un recuerdo lejano, en un cielo olvidado...
+Mucho tiempo atrás. En un recuerdo lejano. En un cielo olvidado…
 
 Él agitaba sus alas con todas sus fuerzas, apenas logrando mantenerse en vuelo.
 
@@ -156,7 +156,9 @@ Un viaje inaudito hacia un destino inaudito.
 
 La gigantesca esfera amarilla crecía en tamaño a medida que se acercaban. Todos los pavo-halcones la alcanzaron y comenzaron a rodearla en círculos. Poco a poco formaron una enorme espiral ascendente, como una escalera negra que los conducía cada vez más alto en el cielo.
 
-Drygut, en medio de aquel vuelo imposible, sentía el oxígeno escapar de sus pulmones. El aire se volvía más frío, respirar más doloroso...
+Drygut, en medio de aquel vuelo imposible, sentía el oxígeno escapar de sus pulmones.
+
+El aire se volvía más frío. Respirar era dolor. El oxígeno se le escapaba.
 
 "Aguanta" ordenó su padre con firmeza.
 
