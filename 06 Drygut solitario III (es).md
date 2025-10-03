@@ -1,6 +1,8 @@
+# 06 Drygut solitario III (es)
+
 "No podemos vivir de promesas..."
 
-// ----------
+[---]
 
 Drygut se volvió lentamente, sintiendo el frío abismo detrás de él. Estaba al borde de un escarpado acantilado, donde las olas de un embravecido océano ártico se lanzaban furiosas contra las rocas, creando un eco ensordecedor que se mezclaba con el rugido del viento helado.
 
@@ -28,13 +30,13 @@ El corazón de Drygut, que por un momento se había detenido, volvió a latir co
 
 Drygut no respondió; simplemente desvió su mirada hacia el horizonte, donde el cielo y el mar se fundían en una vasta oscuridad salpicada de icebergs.
 
-Poco después, Fathungry se marchó, no sin antes decirle unas ultimas palabras ... 
+Poco después, Fathungry se marchó, no sin antes decirle unas ultimas palabras ...
 
 Solo en el acantilado, enfrentando el gélido viento, Drygut mantuvo sus ojos fijos en el vasto océano que se extendía ante él, un océano que se desvanecía lentamente de su vista, al igual que la imagen imaginaria de su padre volando en el horizonte.
 
 Con los párpados pesados por la nieve y el hielo que se mezclaban con sus lágrimas, la última luz se apagó en sus ojos.
 
-// ----------
+[---]
 
 "Hijo mío, mira ..."
 
@@ -60,11 +62,11 @@ Con los párpados pesados por la nieve y el hielo que se mezclaban con sus lágr
 
 "..."
 
-// ----------
+[---]
 
 "Una pluma ardiendo entre un cielo azul, blanco y rojo ... "
 
-// ----------
+[---]
 
 Drygut entreabrió los ojos, notando sus alrrededores con un resplandor carmesí que iluminaba sus pupilas, reflejo de las llamas moribundas de la fogata a pocos metros de él. De reojo, distinguió una Kirin acurrucada entre sus plumas, durmiendo plácidamente.
 
@@ -114,7 +116,7 @@ Además, esos sueños... recuerdos de su pasado, de su padre... esos pensamiento
 
 Con esta determinación y un simple plan en la cabeza, Drygut lanzó una mirada feroz a la kirin dormida en su regazo, mientras la mañana comenzaba a abrirse paso entre las nubes del oscuro horizonte.
 
-// ----------
+[---]
 
 "¡Te va a encantar la sopa de siete colores que estoy preparando! Tiene papas azules, zanahorias, frijoles, tomates, coles y calabazas. Y el ingrediente más importante de todos: ¡remolachas! ¡Amo las remolachas!" exclamó Autumn Blaze, agitando su cuchara de madera con entusiasmo mientras removía el contenido del enorme caldero. El delantal que llevaba parecía un accesorio menor en comparación con la energía que irradiaba.
 
@@ -146,7 +148,7 @@ Molesta, la kirin arrojó la sartén hacia un montón de despojos apilados no mu
 
 Los segundos de paciencia que le quedaban a Drygut se estaban agotando rápidamente. Se arrancó otra pluma, decidido a no fallar esta vez...
 
-//	---------------
+[---]
 
 Quedaban pocos minutos para el mediodía, al igual que pocas plumas flojas en la espalda de Drygut.
 
@@ -236,13 +238,13 @@ Ya desintegrado el cuchillo, Autumn Blaze volvió a ser la misma kirin sonriente
 
 Pero Drygut no escuchó aquellas palabras; en su mente resonaban otras...
 
-// ----------
+[---]
 
 "Una pluma ardiendo entre un cielo azul, blanco y rojo... envuelta en el fuego que llevamos dentro, una voluntad ardiente como el sol que entregamos en cada generación, una llama capaz de quemar el acero de una espada y sanar cualquier herida que esta cause en nuestro corazón. Es el fuego que haría arder una pluma divina."
 
 Así le había revelado el padre de Drygut a su hijo, poco después de la cena, tras su encuentro con el dios de los cielos.
 
-// ----------
+[---]
 
 "No sé si estoy lista para esto... Creo que lo mejor será que me dejes aquí. Pensaba visitar a unos amigos más al oeste, ¿sabes?"
 
@@ -295,5 +297,3 @@ Drygut no respondió al parloteo de la kirin. Aunque sí tenía una dirección e
 En medio de una tarde brillante, la sombra de Drygut se desvanecía entre las altas nubes. Volaba cada vez más rápido, rumbo a un destino lejano y desconocido...
 
 Pero este no sería un viaje que haría en solitario. Ahora, acompañado por una insospechada compañera, Drygut pudo sentir por fin el débil calor del ardiente espíritu que una vez su padre intentó darle.
-
-

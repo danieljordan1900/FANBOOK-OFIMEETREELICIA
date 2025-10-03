@@ -1,44 +1,42 @@
 # Drygut Solitario I
 
-Entre las cumbres de las altas montañas, la luz del amanecer se filtraba lentamente, atravesando las nubes e iluminando el extenso valle verde que descendía por sus laderas.
+Entre las cumbres de unas altas montañas, la luz del amanecer se filtraba lentamente a través de las nubes, iluminando el extenso valle verde que descendía por sus laderas.
 
-Era el inicio de un nuevo día sobre aquel valle, formado por densos bosques y prados naturales, en medio de los cuales serpenteaba un amplio y caudaloso río, cuyo curso se veía interrumpido por múltiples y majestuosas cataratas.
+Era el inicio de un nuevo día en aquel valle de densos bosques y prados abiertos, atravesado por un caudaloso río que rompía en múltiples y majestuosas cataratas.
 
-Y precisamente, en el centro de ese río, sobre la más grande de todas las cascadas, se erguía desafiante una pequeña isla fluvial, hogar de un pueblo pintoresco y densamente poblado.
+En el centro del curso fluvial, sobre la mayor de aquellas cascadas, desafiante, se alzaba una pequeña isla, hogar de un pueblo pintoresco y densamente poblado.
 
-Más moderno que rural, este pueblo, aislado del resto del mundo, albergaba una comunidad pacífica y agraria que vivía en constante armonía con su entorno.
+Más moderno que rural, aquel asentamiento aislado del mundo era una comunidad pacífica y agraria que había vivido siempre en armonía con su entorno.
 
-O al menos, así había sido hasta esa mañana.
+O al menos, hasta esa mañana.
 
-Menos de una hora después del amanecer, las campanas comenzaron a resonar por todo el pueblo, arrancando a los habitantes de su plácido sueño. A diferencia de las campanadas habituales, que marcaban el inicio de la jornada, aquellas campanas eran un presagio inconfundible: un aviso de peligro inminente.
+Menos de una hora después del amanecer, las campanas comenzaron a repicar en todas direcciones, arrancando a los habitantes de su plácido sueño. No eran las campanas habituales que marcaban la jornada: eran un presagio inequívoco, un aviso de peligro.
 
-Al sur de la isla, los granjeros —quienes despertaban más temprano que los demás— corrían de un lado a otro, anunciando con voces desgarradas la aterradora sorpresa que acababan de descubrir.
+Al sur de la isla, los granjeros —que despertaban más temprano que nadie— corrían de un lado a otro, gritando con voces desgarradas la terrible sorpresa que habían descubierto.
 
-Un suceso sin precedentes: sus grandes depósitos de alimentos, aquellos que custodiaban celosamente para tiempos de escasez, habían sido destrozados y saqueados. Una noticia pésima que solo empeoraba al saberse la posible identidad del atacante.
+Un hecho sin precedentes: los depósitos de alimentos, celosamente custodiados para tiempos de escasez, habían sido destrozados y saqueados. Y lo peor era la posible identidad del atacante.
 
-Huellas de enormes garras y perforaciones profundas en los silos violentados. La señal inequívoca de un monstruo de gran tamaño.
+Las huellas de enormes garras y las perforaciones en los silos lo delataban: un monstruo de gran tamaño.
 
-El temor se apoderó de la comunidad, sumiéndola en el caos. La noticia se propagó como fuego, y gritos y lamentos comenzaron a elevarse desde cada rincón del pueblo, extendiéndose hacia los alrededores.
+El temor se propagó como fuego, sumiendo al pueblo en el caos. Gritos y lamentos resonaban desde cada rincón, extendiéndose hasta los alrededores.
 
-Incluso en el cielo, las aves locales habían alzado vuelo y giraban en círculos, inquietas, como si compartieran la ansiedad de la gente del pueblo.
+Incluso las aves locales revoloteaban inquietas sobre los tejados, como si compartieran la ansiedad de los habitantes.
 
 Pero más arriba, en lo alto del firmamento, entre las nubes, otra figura se deslizaba silenciosamente, observando todo desde las alturas.
 
-Era un ave extraña en aquellas tierras, una criatura descomunal que fácilmente podría confundirse con un águila gigante.
+A primera vista podía confundirse con un águila gigante, dada su envergadura, pero al observarla más de cerca, se hacia evidente que no lo era.
 
-Pero no era un águila gigante.
-
-La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se marcaban ojeras azuladas, cejas exageradamente pronunciadas y un pico amarillo que colgaba como un diente podrido.
+La criatura lucía un plumaje negro como la noche, con el cuello y la cabeza desnudos en una piel brillante y roja como un tomate maduro. En su rostro aviar se destacaban ojeras azuladas y cejas exageradamente bajo las cuales colgaba, como un diente podrido, un grueso pico amarillo.
 
 Aquel ser sin encanto, que parecía un improbable cruce entre un pavo y un halcón, era exactamente lo que aparentaba: un pavo-halcón.
 
 Más precisamente, era Drygut, el pavo-halcón, que ahora planeaba despreocupado sobre el pueblo, deleitándose con el alboroto de sus habitantes.
 
-Desde lo alto, soltó una carcajada burlona, un cloqueo cargado de malicia que resonó en el aire. El desorden en el pueblo era música para sus oídos. Nadie conocía la verdad mejor que él: Drygut sabía perfectamente quién había atacado el pueblo en la oscuridad de la madrugada.
+Desde lo alto soltó un cloqueo burlón, cargado de malicia, que resonó en el aire. El desorden en el pueblo era música para sus oídos. Nadie conocía la verdad mejor que él: Drygut conocía perfectamente al responsable del ataque al pueblo en la oscuridad de la madrugada.
 
-Drygut lo había hecho. Drygut era el responsable.
+Drygut lo había hecho. Drygut era el culpable.
 
-Con el pecho hinchado de orgullo y el estómago satisfecho con la comida robada, Drygut se perdió entre las nubes, alejándose con pronunciada pereza del caos que había sembrado.
+Con el pecho hinchado de orgullo y el estómago satisfecho con la comida robada, la enorme ave se perdió entre las nubes, alejándose con pereza del caos que había sembrado.
 
 [---]
 

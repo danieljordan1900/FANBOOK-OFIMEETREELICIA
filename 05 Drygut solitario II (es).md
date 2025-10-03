@@ -1,3 +1,5 @@
+# 05 Drygut solitario II (es)
+
 Hacía mucho frío esa mañana. Podía sentirlo en lo más profundo de su corazón.
 
 Somnoliento y envuelto en oscuridad, abrió los ojos en medio de las tinieblas. Todo era nebuloso; una capa de escarcha cubría sus párpados. Tras sacudir la cabeza y estornudar, el joven Drygut pudo contemplar con mayor claridad el lúgubre entorno que lo rodeaba.
@@ -82,7 +84,7 @@ Drygut, con el corazón en un puño, intentó hablar, pero las palabras se le at
 
 Ninguno de los presentes volvería a verlo volar nunca más.
 
-// ----------------------
+[---]
 
 "Padre... padre... ¡padreeeeee!... Aurhhhhhhg."
 
@@ -122,7 +124,7 @@ El viento cesó gradualmente, y la neblina comenzó a cerrar filas de nuevo a su
 
 Con un poderoso aleteo, la gran ave corrió por la empinada colina hasta elevarse en el cielo, dejando atrás el montón de troncos podridos que había tenido por hogar hasta entonces.
 
-// ----------------------
+[---]
 
 El vuelo de Drygut durante la tarde había sido monótono y gris. La niebla densa se aferraba al valle, opresiva y desalentadora para un ave como él, acostumbrada a una visión despejada y un horizonte claro.
 
@@ -160,7 +162,7 @@ A lo lejos, una larga columna de humo se alzaba hacia el cielo, manchándolo con
 
 Desconcertado por aquel humo en una zona tan remota, la curiosidad invadió a Drygut, haciéndole olvidar sus anteriores preocupaciones. Alegre de tener algo más en qué pensar, aleteó con entusiasmo hacia la gran columna de humo en la distancia.
 
-// -------------
+[---]
 
 "Es un gran incendio..." pensó Drygut, sus cejas alzadas y sus ojos brillando con el reflejo carmesí de las llamas.
 
@@ -200,7 +202,7 @@ Pero ya dentro del incendio, Drygut descubrió el grave error que había cometid
 
 Volando al ras del suelo y envuelto por el espeso humo, la silueta de una torre emergió repentinamente ante sus ojos. No tuvo tiempo de reaccionar. Segundos después, todo se volvió oscuridad.
 
-// ------------
+[---]
 
 Cuando Drygut comenzó a recuperar la conciencia, el mundo parecía fluir en una profunda oscuridad. Poco a poco, las formas se fueron definiendo, y el sonido del agua corriendo a su alrededor llegó a sus oídos.
 
