@@ -32,7 +32,7 @@ Drygut y sus hermanos se abalanzaron sobre el extraño cuerpo, ansiosos y hambri
 
 La gran presa no tardó en desaparecer, consumida rápidamente por los jóvenes. Mientras tanto, en un rincón apartado e íntimo, el padre aprovechaba la oportunidad para compartir alimento con su pareja, regalándole pequeños bocados de otras presas menores.
 
-Así, en un silencio creciente, solo interrumpido por el menguante frenesí de la comida, la familia de pavo-halcón terminó de alimentarse sin problemas.
+Así, en un silencio creciente, solo interrumpido por el menguante frenesí de la comida, la familia del pavo-halcón terminó de alimentarse sin problemas.
 
 Pronto, Drygut y los otros jóvenes comenzaron a retozar nuevamente, satisfechos. Aunque no habían comido lo suficiente como para llenarse por completo, los nutrientes ingeridos les provocaban una sensación de sueño y pesadez difícil de soportar.
 
@@ -72,7 +72,7 @@ El nombre cayó sobre ellos como una roca, oscureciendo los pensamientos de todo
 
 "No vayas" ordenó su pareja, su voz apenas un susurro quebrado por el miedo.
 
-"Debo ir" respondió el gran pavo-halcón con firmeza. Sin más palabras, apartó a su pareja con su enorme ala y se dispuso a marcharse.
+"Debo ir" respondió la cabeza de la familia con firmeza. Sin más palabras, apartó a su pareja con su enorme ala y se dispuso a marcharse.
 
 Antes de abrir la entrada, se detuvo un instante y giró la cabeza para mirar por última vez el nido que dejaba atrás.
 
@@ -164,37 +164,37 @@ Desconcertado por aquel humo en una zona tan remota, la curiosidad invadió a Dr
 
 [---]
 
-"Es un gran incendio..." pensó Drygut, sus cejas alzadas y sus ojos brillando con el reflejo carmesí de las llamas.
+"Es un gran incendio..." pensó Drygut, con las cejas alzadas y los ojos brillando con el reflejo carmesí de las llamas.
 
 Incluso a la altura en la que se encontraba, podía sentir el calor ascendiendo desde el infierno que se desataba abajo. El bosque ardía incontrolable, y las casas y establos de un gran pueblo ribereño estaban ya envueltos en llamas voraces.
 
-Desde las alturas, Drygut podía ver a los aldeanos desesperados huyendo por los caminos que salían de la ciudad, algunos a pie, otros en carretas cargadas con sus pocas pertenencias. Mientras tanto, el interior del pueblo era consumido por el fuego, y los habitantes que quedaban intentaban inútilmente apagar el incendio con extrañas y grandes máquinas de agua.
+Desde las alturas, Drygut contemplaba a los aldeanos desesperados huyendo por los caminos que salían de la ciudad, algunos a pie, otros en carretas cargadas con sus pocas pertenencias. Mientras tanto, el interior del pueblo era consumido por el fuego, y los que quedaban intentaban inútilmente apagar las llamas con extrañas y grandes máquinas de agua.
 
 Para Drygut, ver aquel caos desde el cielo no era más que pura diversión.
 
-"Clo, clo, clo, clo," rió con satisfacción, observando los inútiles esfuerzos de los aldeanos por contener el fuego. Las llamas se extendían rápidamente, envolviendo gran parte del bosque. Si no se daban prisa en escapar, pronto se verían cercados por el fuego.
+"Clo, clo, clo, clo," rió con satisfacción, observando los inútiles esfuerzos de los aldeanos por contener el fuego. Las llamas se extendían rápidamente, envolviendo gran parte del bosque. Si no se daban prisa en escapar, pronto se verían cercados por el incendio.
 
 Girando en círculos alrededor de la gran columna de humo, Drygut buscaba algo más de lo que reírse.
 
-"Oii Oiiii," escuchó un zumbido desde abajo. Intrigado, miró hacia el camino y vio cómo varios aldeanos abandonaban sus carretas, corriendo aterrorizados.
+"Oii, oiii," escuchó un zumbido desde abajo. Intrigado, miró hacia el camino y vio cómo varios aldeanos abandonaban sus carretas, corriendo aterrorizados.
 
-"¿Habrán visto el fuego que se acerca?" pensó con lentitud. Pero al observar a varios de ellos detenerse y encabritarse contra el cielo, lo comprendió.
+"¿Habrán visto el fuego que se acerca?" pensó con lentitud. Pero al notar que algunos se detenían y señalaban hacia el cielo, lo comprendió.
 
-Los aldeanos lo habían visto a él, y probablemente pensaban que era el responsable del incendio. Al menos, eso interpretó Drygut de los gritos difusos que llegaban desde abajo.
+Lo habían visto a él, y probablemente pensaban que era el responsable del incendio. Al menos eso interpretó Drygut de los gritos difusos que llegaban desde abajo.
 
-"Clo, clo, clo, clo," volvió a reír burlón. No sabía qué pensar de esas criaturas tan pequeñas y torpes, aparte de que eran increíblemente estúpidas. Los pavo-halcones no conocían el fuego, es decir, no lo usaban, y eran resistentes tanto a las llamas como al agua. Aun así, debían tener cuidado (no eran invulnerables a la asfixia), y por eso mismo Drygut se mantenía distante del humo y las lenguas de fuego.
+"Clo, clo, clo, clo," volvió a reír con burla. No sabía qué pensar de esas criaturas tan pequeñas y torpes, aparte de que eran increíblemente estúpidas. El pavo-halcón no conocían el fuego, es decir, no lo usaban. Lo que sí tenían era una resistencia natural al fuego y al agua, aunque no eran invulnerables: el verdadero peligro era la asfixia en un incendio de tal magnitud. Por eso mismo, Drygut se mantenía distante del humo y de las lenguas de llamas.
 
 Entonces, una oscura idea iluminó su semblante.
 
-"Pero... ¿y si les doy lo que buscan?" pensó con malicia. Drygut no estaba seguro de qué tan útil sería ganarse el mérito de aquel desastre ardiente, pero podría servir como prueba ante los suyos de que no era amigable con las pequeñas criaturas como esos aldeanos.
+"Pero... ¿y si les doy lo que buscan?" pensó con malicia. No estaba seguro de qué tan útil sería adjudicarse el mérito de aquel desastre ardiente, pero quizá serviría como prueba ante los suyos de que no tenía inclinaciones amistosas hacia pequeñas criaturas como aquellos aldeanos.
 
-Sin pensarlo más, trazó un simple plan en su cabeza y lo llevó a cabo.
+Sin pensarlo más, trazó un simple plan en su mente y lo llevó a cabo.
 
-Soltando un largo grito ronco, característico de su especie, Drygut se lanzó en picada hacia los aldeanos, quienes de inmediato empezaron a correr despavoridos. En un vuelo rasante, creando un gran viento bajo sus alas, Drygut sobrevoló tres veces sobre ellos, quienes, aterrorizados, dejaron todo atrás y se adentraron en la inmensidad del bosque circundante.
+Soltando un largo grito ronco, característico de su especie, Drygut se lanzó en picada hacia los aldeanos, quienes de inmediato empezaron a correr despavoridos. En un vuelo rasante, creando un gran viento bajo sus alas, sobrevoló tres veces sobre ellos, que aterrados dejaron todo atrás y se adentraron en la inmensidad del bosque circundante.
 
-Convencido de que su plan había funcionado, Drygut infló el pecho de orgullo mientras reía de nuevo. Se sentía envalentonado por lo que había hecho, y pensando que quizá los aldeanos aún lo observaban desde el bosque, decidió hacer una acrobacia más antes de marcharse.
+Convencido de que su plan había funcionado, Drygut infló el pecho de orgullo mientras reía otra vez. Se sentía envalentonado por lo que había hecho, y pensando que quizá los aldeanos aún lo observaban desde el bosque, decidió dar una muestra más de poder antes de marcharse.
 
-Descendió nuevamente hacia el incendio, esta vez internándose desde el lado más humeante, decidido a sorprender a cualquiera que estuviera del otro lado, apareciendo en medio del fuego como un fénix ardiente.
+Descendió nuevamente hacia el incendio, esta vez internándose desde el lado más humeante, decidido a sorprender a cualquiera que estuviera del otro lado. Emergería en medio del fuego como un fénix ardiente.
 
 Sería una imagen que, sin duda, ninguno de los aldeanos olvidaría en sus vidas.
 
@@ -226,7 +226,11 @@ Drygut, sin comprender del todo lo que ocurría, sintió un dolor insoportable q
 
 Desfallecido, el cuello de Drygut se dobló y empezó a cerrar los ojos nuevamente, perdiendo el conocimiento.
 
-"...ok, me equivoqué, no se ve mal... se ve horrible. Pero sigo confiada en que puedo ayudarte, amigo. Te lo dice una Kirin que ha tomado clases avanzadas de medicina en su tribu y está lista para afrontar cualquier desafío que se le presente en su viaje por el mundo. Así que, mientras te cuento la historia de mi vida, que estoy segura de que te mantendrá en un vivo interés jajaja (mal chiste)... me encargaré de atenderte como es debido... ugh..."
+"...ok, me equivoqué, no se ve mal... se ve horrible. Pero sigo confiada en que puedo ayudarte, amigo. Te lo dice una Kirin que ha tomado clases avanzadas de medicina en su tribu y está lista para afrontar cualquier desafío que se le presente en su viaje por el mundo.
+
+Bien, primero esto..." —la Kirin presionó uno de los hematomas alrededor de la herida, haciendo que Drygut se estremeciera—. "¡Uy, perdón!
+
+Ejem... como te decía, mientras te cuento la historia de mi vida, que estoy segura de que te mantendrá con vivo interés jajaja (mal chiste)... me encargaré de atenderte como es debido... ugh (traga saliva)."
 
 La conciencia de Drygut se desvanecía rápidamente, y apenas podía oír lo último que decía la Kirin.
 
